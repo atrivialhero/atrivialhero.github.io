@@ -12,7 +12,9 @@ Tour
 
 <iframe width="560" height="315" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="0" allowfullscreen></iframe>
 ---
-
+***Review of Open Mics in Los Angeles/Anaheim Area***
+<iframe width="560" height="315" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="0" allowfullscreen></iframe>
+---
 ***Open Mic Across America Entry June 5, 2014***
 ----------
 
