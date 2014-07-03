@@ -24,6 +24,8 @@ Tour
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It has been too long since I have checked in. I sit in a cafe in St. Paul, MN, pondering my world and my choices. I find myself happy on the road, performing my songs for audiences of varying sizes. It is nice to receive compliments and inquiries about where they can find my music, but it is nicer to just play. The things that happen when I step off the stage are good, but nothing can compare to the feeling of strumming and singing, of expressing my thoughts, of believing my words as I put them out into the universe. It is nothing short of amazing. I am aware that some day I will have to face the realities of home. That prospect scares me. For the time being, I am just going to enjoy the opportunity I have in front of me. I have time to write and create. It shall not go wasted:
 
 A wish for a different past is a wish for a different present. If you are happy with your present, there was no other way to get there than the path that you took. If you are NOT happy with your present, you need to change your behaviors now so that when the future becomes the present, and the present becomes the past, you can be happy with where you are.
+---
+
 
 
 ***Open Mic Across America Entry June 5, 2014***
