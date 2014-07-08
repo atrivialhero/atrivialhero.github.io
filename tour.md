@@ -21,6 +21,18 @@ Tour
 ***Review of Open Mics in the Pacific Northwest***
 <iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry July 8, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I have arrived in Chicago, Illinois. The reach of my friends back home continues to aid me in ways that I am unbelievably grateful for. I recently talked with someone about how lucky I am to have received so much kindness throughout my journey this far. The person I was speaking with said that it is a reflection of myself. I can only hope that is accurate. People have been so good to me that I have no proper way to express gratitude or repay them. So instead I just work to be worthy of it. Worthy of them. I strive to be the best being that I can in every way that I can think of. How can I be kinder? More honest? More giving? More able? I want to build myself both inside and out so that I have more to share with the world. I want to share it.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is easy for people who are presently in a good, happy place to say that everything happens for a reason. To say that they are exactly where they are supposed to be. They can look back on their hardest trials and say, "Yes, but they have led me to here, to this place of happiness, so I needed them."
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;But true understanding belongs to those who currently find themselves in pain or suffering and still can say that they are exactky where they are supposed to be. That their anger and sadness is necessary. That everything is happening as it should. If something bad happens to someone, and they learn from it to do better next time, then that is why it was required for them to endure failure - so they could learn. This person is on the path to happiness. However, if a person makes a mistake, but learns nothing, instead continuing to make similar mistakes, then where that person is supposed to be is in suffering, in pain, in anger, in sadness. I can say confidently that we are akk wgere we belong, but I cannot say that we all belong in happiness. We belong in happiness if we choose to belong there.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Also, do not mistake the fact that it should be easy for happy people to recognize the worth of their troubles for the notion that all happy people do value their past troubles. Their happiness might be where they are meant to be because it could lead to their fall. Sometimes, people need to have something and lose it before they ever appreciate what having happiness means. The next time they achieve it, it will mean so much more.
+
+
 ***Open Mic Across America Entry July 2, 2014***
 ----------
 
