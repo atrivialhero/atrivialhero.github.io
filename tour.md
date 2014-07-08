@@ -18,6 +18,9 @@ Tour
 ***Review of Open Mics in Northern California***
 <iframe width="560" height="315" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
 ---
+***Review of Open Mics in the Pacific Northwest***
+<iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
+---
 ***Open Mic Across America Entry July 2, 2014***
 ----------
 
