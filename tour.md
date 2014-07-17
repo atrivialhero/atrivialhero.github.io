@@ -12,6 +12,8 @@ Tour
 
 <iframe width="560" height="315" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="0" allowfullscreen></iframe>
 ---
+<iframe width="560" height="315" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="0" allowfullscreen></iframe>
+---
 ***Review of Open Mics in Los Angeles/Anaheim Area***
 <iframe width="560" height="315" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="0" allowfullscreen></iframe>
 ---
@@ -21,6 +23,17 @@ Tour
 ***Review of Open Mics in the Pacific Northwest***
 <iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry July 17, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"If you have learned one thing on the road, it is how to be a good houseguest." I received this compliment yesterday, and it meant the world to me. I want to be the best houseguest I can be. These people are opening up their homes to me simply out of the kindness of their hearts. It is not enough to express my gratitude in words. They need to see it, feel it through my actions. It may seem simple to them, as so many of them have said, to have me stay for a few days, but it makes such a huge difference for me. They are making my life simple and happy. The least I can do is return the favor. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I have reached Pittsburgh, Pennsylvania now, after a trying few day stretch. Certain frustrations have started to creep into my travel, but I cannot let them get to me. Confusing roads or unfortunate circumstances at open mics cannot affect my mood, cannot affect myself. Yesterday in the midst of my "troubles" (I don't really think I can qualify them as such) I looked up to the sky and just laughed. I said out loud to myself, "If these are the challenges, I'm still here. I'm still going. If this is the roadblock that is getting thrown in front of me, I'm not turning around so let's see what's next." It was probably dumb to challenge the universe like that, because my next few hours were filled with even more challenges. I persevered, with lots of swearing, and ended up at my open mic in an old and run down area of Pittsburgh. I played an ok set, but my voice was tired, causing me to come in flat on a few notes. Disappointing.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The people were still excited to hear I was from across the country and kept me on the stage for awhile after my set, throwing out questions about my travels and influences. When I mentioned that I was a Penguins fan, one girl accused me of claiming similar things in each city I go to, that I'd go to Philadelphia and say I was a Flyers fan. I couldn't help it, it was instinct, "FUCK the Flyers." My comment drew loud applause, but I felt foolish for my outburst of hateful words. I stepped off the stage in shame and talked with various people about my travels. I met a group of travelers from Florida whose look fit the bill of wanderer more than my own does. Their dreadlocks and dirt encrusted skin made me wonder if I'd ever get to that point. If I could ever live so free from the eyes of society as to let my physical appearance go. I'll admit that I still have quite a bit of vanity, even on the road. I work out every day and hate wrinkles in my clothes. I post pictures and video clips that display me in a good light, and I want people to notice. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I feel bad for that, but it is true. I do want people to notice. Both for my sake and theirs. A selfish side of me wants them to notice because it would be nice to be recognized for what I'm doing, maybe even to receive a tangible reward in the form of a following or financial backing, but I also want people to notice because I think that I can help them. I think that they can learn from me. Maybe that is cocky to say, but I believe it to be true. I think that if people took notice of what I'm doing and saying, they might be able to find a little bit more happiness in their lives, and that is what keeps me going.
+
 ***Open Mic Across America Entry July 8, 2014***
 ----------
 
@@ -28,7 +41,7 @@ Tour
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is easy for people who are presently in a good, happy place to say that everything happens for a reason. To say that they are exactly where they are supposed to be. They can look back on their hardest trials and say, "Yes, but they have led me to here, to this place of happiness, so I needed them."
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;But true understanding belongs to those who currently find themselves in pain or suffering and still can say that they are exactky where they are supposed to be. That their anger and sadness is necessary. That everything is happening as it should. If something bad happens to someone, and they learn from it to do better next time, then that is why it was required for them to endure failure - so they could learn. This person is on the path to happiness. However, if a person makes a mistake, but learns nothing, instead continuing to make similar mistakes, then where that person is supposed to be is in suffering, in pain, in anger, in sadness. I can say confidently that we are akk wgere we belong, but I cannot say that we all belong in happiness. We belong in happiness if we choose to belong there.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;But true understanding belongs to those who currently find themselves in pain or suffering and still can say that they are exactly where they are supposed to be. That their anger and sadness is necessary. That everything is happening as it should. If something bad happens to someone, and they learn from it to do better next time, then that is why it was required for them to endure failure - so they could learn. This person is on the path to happiness. However, if a person makes a mistake, but learns nothing, instead continuing to make similar mistakes, then where that person is supposed to be is in suffering, in pain, in anger, in sadness. I can say confidently that we are all where we belong, but I cannot say that we all belong in happiness. We belong in happiness if we choose to belong there.
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Also, do not mistake the fact that it should be easy for happy people to recognize the worth of their troubles for the notion that all happy people do value their past troubles. Their happiness might be where they are meant to be because it could lead to their fall. Sometimes, people need to have something and lose it before they ever appreciate what having happiness means. The next time they achieve it, it will mean so much more.
 
