@@ -23,6 +23,14 @@ Tour
 ***Review of Open Mics in the Pacific Northwest***
 <iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry July 28, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Open Mic Across America has now pushed abroad. I sit in Montreal, QC in Canada as I type this. I was given a little bit of hassle at the border, but nothing to really fuss over. I'm sure it seems a little bit suspicious to have someone drive into your country in a car packed with enough things to survive for six months. It probably draws even more attention that this person has no job to speak of, nor any real plans for what he will be doing throughout his stay. I get it. What I'm doing is by no means "normal." But that is part of what is fun about it. Back in L.A., my first stop on this journey, a music producer giving me advice said, "How many people are there in the world doing what you're doing? None. Well, one - you!" Nothing about what I'm doing is common practice. My eating habits, my sleep schedule, my travel, my planning, my outlook, my goals, nothing. But what a cool thing to be able to say, that I am doing something so unique that I don't really know of anybody else that is doing something like it, or of anybody else that is like me.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Sometimes that can be a lonely thought. Who else is like me? Who sees the world as I do? Who wants to spend time with me? I don't need others to see the world the same way as I do, I just need someone to share my view with and who will share their view with me. Or it can be multiple people. That is one of the nice things about open mics. Some open mics, I should say. Often, there are just so many people there who want to share. They've created something based on the way that they perceive the world, and they want to show it to other people. It is truly wonderful. Sure, some people are there for the attention or for the exposure. Those people are looking for those things in the wrong places. An open mic is typically a great place to share and have things shared with you. It is hardly ever, almost never a place to get exposure. What a romantic tale that would be: "Artist discovered at local open mic. Fame and fortune to follow." It's silly. It's a dream. People need to understand that there is a reality to wake up to. Though, I suppose those seeking attention aren't really hurting anyone with their dreams. As the Beatles said, "I'm only sleeping."
+
+
 ***Open Mic Across America Entry July 17, 2014***
 ----------
 
