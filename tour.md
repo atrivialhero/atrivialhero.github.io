@@ -23,6 +23,16 @@ Tour
 ***Review of Open Mics in the Pacific Northwest***
 <iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry August 11, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I suppose it was bound to happen eventually. I just hope this is the biggest speed bump I'll hit, just as I hope the drive to Vermont was the worst one I'll encounter, just as I hope my most recent heartache will be the worst I'll ever have to feel... One can hope. I sit outside of Hostel Backpackers, where I will be spending the night, typing and texting away to try to occupy my mind and turn a rough situation into an inspiring story, a turning point. I would love to take every obstacle and make it an opportunity, but when climbing a hill, one doesn't quite see the lessons on the other side, they just see an upward climb and feel the aches in their muscles slowing them down.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The plan was fairly easy: Arrive in Boston on Sunday, crash with friend one night until he leaves for Connecticut, move to other friend's place on Monday, jam out every possible venue, and drive away happy on Saturday. It sounded so simple and the contacts had been included on the plans and given their confirmation. Steps one and two went flawlessly, for which I am so grateful, but then on step three.. I got a text at 2:30pm: "Hey sorry man I'm still in NY for one more day. I should be home tomorrow afternoon." Ok... so... where should I sleep? I guess I have no right to complain. The guy is housing me for free for almost a week. How nice is that? If he has to stay in NY, he must have a good reason. Maybe it's work. Maybe it's for love. I can't judge. But why not tell me before I'm all alone in a city without a plan? Why not give me some notice that it's even a possibility that you won't be there? It hit me in the gut and knocked the wind out of me. Some have said that I should be stoked that I made it this long without this happening to me before. Someone said that if I didn't expect this kind of stuff, then I am naive. I guess I am. I didn't expect people to not keep their word. I didn't expect someone to withhold important information that would shape the way I prepared myself. I didn't expect to be abandoned during a difficult time... I don't think I'm talking about Boston anymore.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Yes, I'm pissed about my current situation, but I'm not going to let it ruin what I'm doing. I'm not going to let it ruin me. I still do not expect those negative things because I put my faith in people. I do not want to start walking around expecting people's worst, just so that I am prepared when it happens. I expect your best. As often as humanly possible. Maybe it will hurt me because people will make mistakes or take advantage of my trust. Maybe I'll spend a lot of time disappointed. So what? Maybe I'll also incite some people to act better. Maybe I can get more out of people by not setting the bar low. My expectations can push you. They push me. I expect your best, so be prepared to give it.
+
+
 ***Open Mic Across America Entry August 6, 2014***
 ----------
 
