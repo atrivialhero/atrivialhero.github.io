@@ -23,6 +23,19 @@ Tour
 ***Review of Open Mics in the Pacific Northwest***
 <iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
 ---
+***Review of Open Mics in Boise and Salt Lake City***
+<iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
+---
+***Open Mic Across America Entry August 25, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Things have seemingly turned a corner in a positive, enjoyable direction, but I am aware that there are many more corners ahead without indication of what awaits on the other side. I departed Boston after several very successful open mics. It was odd to me that in the areas north of Boston (Maine, New Hampshire, Vermont, and even Montreal) there was very little original music at open mics, in fact, there was almost none at all. In Boston, there were very few covers performed, which is much more my preference at open mics. It felt great to again be among songwriters and poets, and even comedians, all the people that enjoy being creative and want to share it with others. The Lizard Lounge, Club Passim, and Bloc 11 Cafe were all fantastic open mic experiences and I highly recommend them.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;From Boston, I drove to New Jersey. To do so, I needed to drive less than a mile through New York City, which took me about 45 minutes. It was an experience for sure, but not one that I am eager to replicate. Traffic from cars, bicycles, and pedestrians make it somewhat of a nightmare to navigate. I honestly don't understand why some people choose to drive in the Big Apple on a regular basis. I, however, was excited to get through the journey as I would be arriving at a place where I would actually be quite familiar with my host for the first time in a while. It feels great to see a friend when it seems like it has been a good amount of time in between seeing a familiar face at all. We played catch up and she showed me the sights. It was one of the most comfortable temporary homes I have experienced yet. Also, on the day of my arrival, there was a great open mic in Hoboken, New Jersey at the Bwe Kafé. The place was packed, the talent was great, and the hosts were super cool throughout the entire night. I loved the whole experience and it finally felt like things were back on track.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;The next few days in New Jersey went well. I got to hike, visit the Jersey Shore, eat some delicious bagels and pizza, and just hang out with an old friend. After a few days, I left my car there to venture into the big city across the river where I would be seeing another great friend as well as have my brother visiting from home for his birthday. Things have continued in a similar way. New York City has a lot to offer in terms of venues, talent, and food. It is extremely crowded and sometimes it can feel a bit overwhelming, but if you take it all in stride, you will discover some of this world's magic and wonder. I will get more into details later for places to go or to avoid, but for now I just want to enjoy the time I have. There is so little time left in this crazy adventure, but there is so much time left in the grand adventure that I have been on since birth. Or that we have all been on since there was a bang in vast, seemingly endless and empty space. I want to soak in as much as I can before, just like everything suddenly burst out of nothing, nothing returns with a barely audible gasp.
+
+
 ***Open Mic Across America Entry August 11, 2014***
 ----------
 
