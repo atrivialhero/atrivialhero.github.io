@@ -26,6 +26,16 @@ Tour
 ***Review of Open Mics in Boise and Salt Lake City***
 <iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry September 1, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Writing songs saves my mind. Without my songs, I would almost definitely go insane, or at the very least just be a very angry person. When I face a difficult situation or disappointment, I can play or even just listen to recordings of my songs, and they make me feel better. The meanings there, both old and new, remind of the lessons I have already learned. They are there just waiting for me to apply them. Just like when the things we learned in school got put into actual practice in the larger world off campus. It feels good. It is comforting to know that there were similar struggles before, and I came out better for it. That is what I am determined to do now. As always. Get better.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I face my most current struggles in Baltimore, Maryland, though as usual, the struggles have little to do with where I am and everything to do with what's at home. Where I am is a good place, and I just need to keep reminding myself of that. I need to remind myself of the present and everything that I have here, now. I have health. More than that, I have fitness. I have an able mind. A creative mind. I have friends that have aided as I make my way across the country. I have love. I have music. Music.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is a big reason why I choose to pursue these creative careers. I like to believe that my songs and writing can help other people just like it helps me. Surely, others face similar struggles and frustrations throughout the course of any given day. Maybe my lessons, my wisdom, can help them to navigate their path. I would love that. Both selfishly and unselfishly. I would love to help people because it would be great for people to have help, but it would also feel good to be the one that did it. To anyone currently struggling, I'm here. I too have struggled. I want you to succeed. Let's work together and be happy. Let's live. Let's love.
+
+
 ***Open Mic Across America Entry August 25, 2014***
 ----------
 
