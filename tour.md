@@ -26,6 +26,16 @@ Tour
 ***Review of Open Mics in Boise and Salt Lake City***
 <iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry September 2, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"Nothing's gonna change my world." What a great line by a freat band. It's so simple, but yet very poignant. Nothing is going to change MY world. I'm still a person in love with writing, currently with the opportunity to travel and perform and live and love. No one can take this from me. It feels good to be living this way. How could it not? Sometimes bad thoughts creep into my head. Feelings of loneliness or anxiety over the future are unavoidable, but they are not insurmountable. It only takes effort. Effort that I am capable of putting forth. Time and again.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I recognize my capacity to feel such things as well as to respond negatively. With anger or self-deprecation. It is because I can identify that those things do exist within me that I am able to keep them at bay. People that think they are incapable of harboring such feelings and displaying them in the world, those are the people that do them most often, but just call it something else when they do it. To them, they are still a good person. It's when other people do those things that they have a problem with it. See, everybody is capable of being an asshole, the only thing that makes someone not an asshole is their choices. The only thing that makes anyone anything is their choices. I've heard a few people describe themselves as "bad at making choices." To me that is just saying "bad at life." Choices are all that determine your life, and you are the only one in control of them. If you find yourself "incapable" of making good choices, then what is your life going to be?
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Similarly to everyone being capable of being an asshole, everyone is also capable of being wonderful. At any given moment in time. Just because someone has made a bad choice in the past that caused them to be an asshole then, does not mean that they should be written off for the entire future. They could continue to make good choices from there, so give people a chance. Don't give people a permanent title based on their past, whether that title be good or bad. Sometimes your friends and people who you have known to be good and awesome individuals, sometimes they'll make bad choices. Do not give them a free pass. Do not excuse that behavior because you know they are a good person. Call them out on it. Help them to fix it. Same goes for people that you have a low opinion of. If they make a choice that is good, do not dismiss it. Recognize it. For we are all capable of both good and evil. We all, for better or worse, have the ability to reason and choose for ourselves. Use it wisely, and recognize that every time you do use it, you could be an asshole. Or not.
+
+
 ***Open Mic Across America Entry September 1, 2014***
 ----------
 
