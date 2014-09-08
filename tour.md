@@ -26,6 +26,17 @@ Tour
 ***Review of Open Mics in Boise and Salt Lake City***
 <iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry September 8, 2014***
+----------
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I'm one hour closer to home. Well, in a literal sense, I'm many hours closer to home, but with regards to time zones, I've moved an hour in the direction of Pacific Standard Time. Throughout the entire trip, the clocks in my car and on my laptop have remained on PST to keep me more aware of what is going on back home. I can look at the clock and picture where my loved ones are at the moment, especially if I am familiar with their schedules. I can see them rising out of bed as I drive across state borders, or getting off of work as I take a stage. Maybe it is a silly comfort, but I'll take any comforts I can get at this point.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I drove away from the Atlantic coast yesterday, meaning I have now left two oceans behind me on this journey or tour or trip or whatever it is. Baltimore is now in the past, and Nashville is my present. I am extremely grateful for all that I got to experience in Baltimore as there were good people and good venues. Some good food was mixed in as well, meaning it gave me just about all that any person could rightfully ask for. It wasn't easy to leave, but it helped knowing that I'd be headed in the direction of home. Today really marks the one-month-countdown as my intention is to be back by October 8. I need to keep myself focused on the present, though. I have no idea what waits for me in a month.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;My present, Nashville, finds me in Music City Hostel. It is a comfortable place filled with cool people. I sat around a collection of tables with study abroad students yesterday. Mostly Australian accents filled the air, but the occasional British sentence rippled through to my ears, and I was told there was also a French student, but never caught that one moving through the air. A quiet Frenchman maybe. I loved hearing their stories. They are studying in North Carolina but just decided to take the weekend to pile thirteen bodies into a couple of vans and come down to see Nashville. They just wanted to skate and drink and laugh and have a good time. It would seem they achieved their mission. I guess it would seem I've achieved mine as well. I took off on the road to play music and experience more of America, more of the world. It would be impossible to say that I haven't done that by now. I have played over eighty open mics, slept in over twenty cities, met countless people, hell, I even went to Canada. I'd love to say that my mission is accomplished, but I think I'm the type to say that my mission will never be accomplished. There's always more to be done. That's how I feel now. There's still so much to do.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;That's not to say I don't appreciate all that I've had the chance to do so far. It has been a wonderful experience - No - It has been a series, a collection of wonderful experiences with the occasional bad experience mixed in, which seems necessary. So who knows which category today will fall into. All I know right now is that I'm one hour closer to home, but it doesn't matter because all I can do is live the hour that is right now.
+
 ***Open Mic Across America Entry September 2, 2014***
 ----------
 
