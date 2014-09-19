@@ -26,6 +26,22 @@ Tour
 ***Review of Open Mics in Boise and Salt Lake City***
 <iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
+***Review of Open Mics in Denver and Omaha***
+<iframe width="560" height="315" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="0" allowfullscreen></iframe>
+---
+***Review of Open Mics in Twin Cities, Madison, and Chicago***
+<iframe width="560" height="315" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
+---
+***Open Mic Across America Entry September 19, 2014***
+----------
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Dallas, Texas has treated me very well. It again will not be easy to say goodbye when it comes time to leave tomorrow. I have a little two year old cousin here with whom I have played every day. I hear her come in the door in the afternoon following day care and ask, "Where is my cousin?" I come downstairs so she can pull me around and show me toys, offering me random pieces of paper to "Give to my mommy." I know by Sunday we will both be saying, "Where is my cousin?" saddened that the answer is not within reach.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It hasn't just been the family aspect of Dallas that has made it so nice, it has been the venues. There was a rare lull in between open mics. As I last checked in, I was in Nashville, but only to play one open mic that came highly recommended from all of my stops across America. It was a packed space, filled with musicians and artists of high levels of talent, but because of its popularity, our sets were extremely limited. I got to play one song in front of an attentive audience, and then I had to step off the stage to make way for the next person. I left the next morning hoping to get to Tulsa, Oklahoma in time for the only open mic available while I'd be in town, but a two hour standstill on the freeway in Arkansas prevented me from making it before it was late into the night, too late to perform. For an audience anyway. 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Though there was not an opportunity to perform in Tulsa, there were good people and good times to be had. I got to enjoy some good company, get back far enough west to have more authentic Mexican food, and just explore a new part of the country. I also got the opportunity to see an old friend. A man with whom, as boys, we were inseparable. We decided together to take up music. We started a band. Our paths have since taken us in two very different directions, but that is part of what makes true friends so great: It doesn't matter how different or far apart you are, there is still a connection there. We shared a meal and some laughs before I made my way into Texas.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Dallas has pretty much made up for that lull in performances. I have jumped from venue to venue around here and received such wonderful responses. There is so much opportunity to play out here, and the crowds are engaged. They are listening. I can feel the connection while I'm on the stage. I can hear it in the sincerity of their cheers and their discussions with me once I step down. It has filled me with so much energy. I will use that fuel to push me through the homestretch of this journey. I'm not far from home. Just a few more stops. A couple more weeks, and when a little voice asks, "Where is my cousin?" the answer will be, "He's at home. He's with people he loves."
+
 ***Open Mic Across America Entry September 8, 2014***
 ----------
 
