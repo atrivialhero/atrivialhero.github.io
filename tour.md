@@ -32,6 +32,13 @@ Tour
 ***Review of Open Mics in Twin Cities, Madison, and Chicago***
 <iframe width="560" height="315" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry September 23, 2014***
+----------
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I left Las Vegas on April 23, 2014. 5 months ago. Since then, I have visited 34 states and over 40 cities/towns. I have been to 2 countries and 2 coasts. I have slept on 32 "beds." I have performed in 97 separate venues. I have heard countless artists. Seen many friends. Made many new friends. Eaten amazing food. Seen beautiful landscapes. There are too many things to capture. These last 5 months of life have been so much... so much... life. There is no other way I can put it. I have lived so much during this journey. I can't even think of much else to say right now. I am somewhat overcome by the idea that it is near an end, though I really have to stop calling it that.
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In no way is returning to Vegas an end. Nor is it a beginning. It is a continuation. It will be a point on a timeline. A choice. Many choices. It will be a crossroads in the middle of a maze made only of crossroads. Nothing stops the moment I get back to Las Vegas. Sure, things change, but things are always changing. It will undoubtedly be a major adjustment. It will be neither good nor bad. It will just be. Like me. I just want to be. I don't want to worry if I am living the life I am supposed to be living, or if I am meeting expectations. The truth is and will remain that I just am me. And part of me wants to say, "And that is a wonderful thing." But it isn't. It isn't wonderful. It isn't terrible. It just is. I just am. Good or bad. Right or wrong. Better or worse. These things don't exist. They are opinions. They are judgments. I don't want to exist within their walls. I want to live.
+
+
 ***Open Mic Across America Entry September 19, 2014***
 ----------
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Dallas, Texas has treated me very well. It again will not be easy to say goodbye when it comes time to leave tomorrow. I have a little two year old cousin here with whom I have played every day. I hear her come in the door in the afternoon following day care and ask, "Where is my cousin?" I come downstairs so she can pull me around and show me toys, offering me random pieces of paper to "Give to my mommy." I know by Sunday we will both be saying, "Where is my cousin?" saddened that the answer is not within reach.
