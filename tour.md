@@ -14,6 +14,9 @@ Tour
 ---
 <iframe width="560" height="315" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="0" allowfullscreen></iframe>
 ---
+***100 Venues!***
+<iframe width="560" height="315" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="0" allowfullscreen></iframe>
+---
 ***Review of Open Mics in Los Angeles/Anaheim Area***
 <iframe width="560" height="315" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="0" allowfullscreen></iframe>
 ---
