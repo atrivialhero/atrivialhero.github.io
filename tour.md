@@ -38,6 +38,9 @@ Tour
 ***Review of Open Mics in Kalamazoo and Pittsburgh***
 <iframe width="560" height="315" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="0" allowfullscreen></iframe>
 ---
+***Review of Open Mics in Montreal***
+<iframe width="560" height="315" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="0" allowfullscreen></iframe>
+---
 
 ***Open Mic Across America Entry September 23, 2014***
 ----------
