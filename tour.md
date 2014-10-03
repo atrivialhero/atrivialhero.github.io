@@ -35,6 +35,10 @@ Tour
 ***Review of Open Mics in Twin Cities, Madison, and Chicago***
 <iframe width="560" height="315" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
 ---
+***Review of Open Mics in Kalamazoo and Pittsburgh***
+<iframe width="560" height="315" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="0" allowfullscreen></iframe>
+---
+
 ***Open Mic Across America Entry September 23, 2014***
 ----------
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I left Las Vegas on April 23, 2014. 5 months ago. Since then, I have visited 34 states and over 40 cities/towns. I have been to 2 countries and 2 coasts. I have slept on 32 "beds." I have performed in 97 separate venues. I have heard countless artists. Seen many friends. Made many new friends. Eaten amazing food. Seen beautiful landscapes. There are too many things to capture. These last 5 months of life have been so much... so much... life. There is no other way I can put it. I have lived so much during this journey. I can't even think of much else to say right now. I am somewhat overcome by the idea that it is near an end, though I really have to stop calling it that.
