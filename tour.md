@@ -47,6 +47,9 @@ Tour
 ***Review of Open Mics in Boston***
 <iframe width="560" height="315" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="0" allowfullscreen></iframe>
 ---
+***Open Mic Across America Entry October 8, 2014***
+----------
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;2:59AM: This is the "Homecoming" entry. I am home in Las Vegas, NV as I type this. It is a surreal feeling. It has been a surreal experience all along, but I think it is only sinking in now. I will let it continue to sink in before rushing to try to put it into words. I just wanted to officially check in that I had arrived back. Safe and sound. For now...
 
 ***Open Mic Across America Entry October 4, 2014***
 ----------
