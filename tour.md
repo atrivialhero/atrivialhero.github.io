@@ -41,11 +41,21 @@ Tour
 ***Review of Open Mics in Montreal***
 <iframe width="560" height="315" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in the Northeeast U.S.***
+***Review of Open Mics in the Northeast U.S.***
 <iframe width="560" height="315" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="0" allowfullscreen></iframe>
 ---
 ***Review of Open Mics in Boston***
 <iframe width="560" height="315" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="0" allowfullscreen></iframe>
+---
+***Review of Open Mics in New York***
+<iframe width="560" height="315" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="0" allowfullscreen></iframe>
+---
+***Review of Open Mics in New Jersey and Baltimore***
+<iframe width="560" height="315" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="0" allowfullscreen></iframe>
+---
+***Review of The Bluebird Cafe***
+<iframe width="560" height="315" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="0" allowfullscreen></iframe>
+
 ---
 ***Open Mic Across America Entry October 8, 2014***
 ----------
