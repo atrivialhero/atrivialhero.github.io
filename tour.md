@@ -7,8 +7,10 @@ sitemap:
    lastmod: 2013-11-11T12:00:00-08:00
 ---
 
-Tour
+Open Mic Across America
 ----------
+
+In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. 
 
 <iframe width="560" height="315" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="0" allowfullscreen></iframe>
 ---
