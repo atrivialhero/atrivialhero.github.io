@@ -9,4 +9,4 @@ sitemap:
 
 Look
 -----
-Here you will find art in a visual medium. From album artwork to videos to presentation programs, there are many unique ways to deliver a message.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Here you will find art in a visual medium. From album artwork to videos to presentation programs, there are many unique ways to deliver a message.
