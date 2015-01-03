@@ -1,6 +1,6 @@
 ---
 layout: default
-title: News
+title: Live
 sitemap:
    priority: 1
    changefreq: weekly
