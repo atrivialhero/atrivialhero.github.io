@@ -1,6 +1,6 @@
 ---
-layout: media
-title: Media
+layout: look
+title: Look
 sitemap:
    priority: 1
    changefreq: monthly
