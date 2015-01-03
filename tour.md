@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "Tour Dates"
+title: "Open Mic Across America"
 sitemap:
    priority: 1
    changefreq: monthly
