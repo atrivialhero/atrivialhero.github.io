@@ -10,7 +10,7 @@ sitemap:
 About Us
 --------
 
-A Trivial Hero is a creative venture. We try not to take ourselves too seriously, though we are super important. Our story is of course extremely unique and enthralling: Basically, some dudes that played instruments met in high school and started writing songs together. Some dudes left to do other things, but some dudes stayed. This is the music of the dudes that stayed... For a more extensive biography, keep reading:
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;A Trivial Hero is a creative venture. We try not to take ourselves too seriously, though we are super important. Our story is of course extremely unique and enthralling: Basically, some dudes that played instruments met in high school and started writing songs together. Some dudes left to do other things, but some dudes stayed. This is the music of the dudes that stayed... For a more extensive biography, keep reading:
          
 ***Members:***   
 A.J. Crame - Guitars, Vocals, Bass, Whining   
