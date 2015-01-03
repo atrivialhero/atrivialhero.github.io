@@ -1,6 +1,6 @@
 ---
 layout: default
-title: About
+title: Learn
 sitemap:
    priority: 1
    changefreq: monthly
