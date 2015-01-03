@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: listen
 title: Listen
 sitemap:
    priority: 1
