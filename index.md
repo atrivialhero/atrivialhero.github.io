@@ -1,6 +1,6 @@
 ---
-layout: music
-title: Music
+layout: listen
+title: Listen
 sitemap:
    priority: 1
    changefreq: monthly
