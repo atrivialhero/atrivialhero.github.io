@@ -24,19 +24,19 @@ Open Mic Reviews
 ***Los Angeles/Anaheim Area***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Northern California***
 <iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
 ---
-***Pacific Northwest***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boise and SLC***
+***Pacific Northwest***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boise and SLC***
 <iframe width="315" height="177" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
-***Denver and Omaha***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Twin Cities and Chicago***
+***Denver and Omaha***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Twin Cities and Chicago***
 <iframe width="315" height="177" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
 ---
 ***Kalamazoo and Pittsburgh***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Montreal***
 <iframe width="315" height="177" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="0" allowfullscreen></iframe>
 ---
-***Northeast U.S.***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boston***
+***Northeast U.S.***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boston***
 <iframe width="315" height="177" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="0" allowfullscreen></iframe>
 ---
-***New York***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***New Jersey and Baltimore***
+***New York***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***New Jersey and Baltimore***
 <iframe width="315" height="177" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="0" allowfullscreen></iframe>
 ---
 ***The Bluebird Cafe Nashville***
