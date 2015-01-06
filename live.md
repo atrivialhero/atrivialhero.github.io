@@ -16,8 +16,10 @@ Live
 <iframe width="315" height="177" src="//www.youtube.com/embed/nePeMNMCT2U" frameborder="10" allowfullscreen></iframe>
 <iframe width="315" height="177" src="//www.youtube.com/embed/IcSl7dDQ7-U" frameborder="0" allowfullscreen></iframe>
 
+
+
 ***Little Man, Little Guitar***
-Video series performing original songs on a small, travel, acoustic guitar. Check it!
+- Video series performing original songs on a small, travel, acoustic guitar. Check it!
 
 ***Episode 1: Forget the Ellipsis***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Episode 2: Surviving the Vortex***
 <iframe width="315" height="177" src="//www.youtube.com/embed/RTLurgbPDDE" frameborder="10" allowfullscreen></iframe>
