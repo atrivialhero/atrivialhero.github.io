@@ -10,16 +10,14 @@ sitemap:
 About Us
 --------
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;A Trivial Hero is a creative venture. We try not to take ourselves too seriously, though we are super important. Our story is of course extremely unique and enthralling: Basically, some dudes that played instruments met in high school and started writing songs together. Some dudes left to do other things, but some dudes stayed. This is the music of the dudes that stayed... For a more extensive biography, keep reading:
-         
-***Members:***   
-A.J. Crame - Guitars, Vocals, Bass, Whining   
-Phillip Black - Drums, Talent
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;A Trivial Hero started as a band. My friends and I came together in Las Vegas, Nevada to make sense of the world through music. As our lives progressed, so did the music and - eventually - the purpose. The idea of A Trivial Hero has evolved into one of both creating art as well as supporting artists that work hard and share their unique abilities with the world. I want to highlight and celebrate the wonders of this world. 
 
-When A.J. and Phillip met while attending a private high school in Las Vegas, NV, A.J. was looking to start a band and Phillip was already in one. They often found themselves performing together for various reasons at their high school (choir band, theater, music theory classes, etc.). They eventually began writing songs together with other boys from their high school, forming the basis for A Trivial Hero.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;My name is A.J. I grew up in Las Vegas, NV where I stayed to attend university and begin a career from a young age. Recognizing that I would hate myself if I grew up without ever taking the chance to travel and play music, I prepared to quit my job and do just that. The project eventually became Open Mic Across America which in its initial venture took me throughout the United States to perform music in over 100 venues, see countless beautiful sights, and experience immeasurable amounts of love and kindness. You can read more about that here.
 
-Both A.J. and Phillip stayed in Las Vegas to attend university, while other members pursued their educations in other places. The lineup changed several times, but at its core were the melodies, lyrics, and progressions written by A.J. driven by the fast and adaptive drums created by Phillip. The band performed at several local bars and small events around Las Vegas for several years, but playing live became difficult without a steady lineup.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;After the initial 6 month road trip, I returned home to figure out the next step. For me, there is more to life than the comforts of a 9 to 5 job with steady pay. Creativity is what sustains me, and I want to use my talents to bring more love and life into this world. I want to bring attention to the many worthy acts I have come across during my travels and performances, hoping to inspire others to pursue life more. A list of wonderful things I have discovered along my journey can be found here.
 
-They eventually turned their attention towards recording. Learning the ins and outs of getting the songs they were playing to translate onto recorded tracks proved more difficult than it initially seemed as the duo took on the task of recording on their own within their own homes. They became the engineers, producers, writers, and performers of their music, and while it was a slower process and would never produce the same quality of sound as a professional, it was far more rewarding.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;For now, I continue to write, record, and perform, spreading my messages by whatever means I can. I hope that you check back in as there will be frequent updates to the music pages, as well as other links and creations and live videos.
 
-As the two have continued to write and record together, A.J. has taken steps toward fulfilling a promise made to himself a long time ago. He is currently preparing to pack up and tour with his guitar, playing any place that people are willing to listen. As part of this preparation, he is recording and releasing several acoustic albums to make the music available in some capacity to any interested.
+Sincerely,
+
+A.J.
