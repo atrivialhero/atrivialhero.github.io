@@ -10,7 +10,14 @@ sitemap:
 Live
 ----
 
-Video series performing originals on a small, travel, acoustic guitar. Check it!
+There is something about a live performance that is completely different from a recorded track. Performing is a major outlet to share creativity. Though watching videos is still different from actually being there, this is where you will find links to live performances. Enjoy!
+
+***Feature spot for Starving Artists LV***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Feature spot for the Human Experience***
+<iframe width="315" height="177" src="//www.youtube.com/embed/nePeMNMCT2U" frameborder="10" allowfullscreen></iframe>
+<iframe width="315" height="177" src="//www.youtube.com/embed/IcSl7dDQ7-U" frameborder="0" allowfullscreen></iframe>
+
+***Little Man, Little Guitar***
+Video series performing original songs on a small, travel, acoustic guitar. Check it!
 
 ***Episode 1: Forget the Ellipsis***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Episode 2: Surviving the Vortex***
 <iframe width="315" height="177" src="//www.youtube.com/embed/RTLurgbPDDE" frameborder="10" allowfullscreen></iframe>
