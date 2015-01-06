@@ -22,7 +22,7 @@ Video series performing originals on a small, travel, acoustic guitar. Check it!
 <iframe width="560" height="315" src="//www.youtube.com/embed/abEtkt2E9PA" frameborder="0" allowfullscreen></iframe>
 
 ***Episode 4: Such Flava*** 
-<iframe width="420" height="315" src="//www.youtube.com/embed/bvldsk7Kboo" frameborder="0" allowfullscreen></iframe>
+<iframe width="315" height="315" src="//www.youtube.com/embed/bvldsk7Kboo" frameborder="0" allowfullscreen></iframe>
 
 ***Episode 5: Mensch*** 
 <iframe width="560" height="315" src="//www.youtube.com/embed/wBG-xmfy3rA" frameborder="0" allowfullscreen></iframe>
