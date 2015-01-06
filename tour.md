@@ -12,51 +12,35 @@ Open Mic Across America
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. To see pictures of the wonderful places I visited, check out my <a href="http://instagram.com/atrivialhero">Instagram</a>.
 
-<iframe width="560" height="315" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="0" allowfullscreen></iframe>
----
-<iframe width="560" height="315" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="0" allowfullscreen></iframe>
+***Introduction***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Halfway Mark***
+<iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="0" allowfullscreen></iframe>
 ---
 ***100 Venues!***
-<iframe width="560" height="315" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="0" allowfullscreen></iframe>
+<iframe width="315" height="177" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="10" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Los Angeles/Anaheim Area***
-<iframe width="560" height="315" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="0" allowfullscreen></iframe>
+
+Open Mic Reviews
+----------
+***Los Angeles/Anaheim Area***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Northern California***
+<iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe><iframe width="315" height="315" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Northern California***
-<iframe width="560" height="315" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
+***Pacific Northwest***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boise and SLC***
+<iframe width="560" height="177" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in the Pacific Northwest***
-<iframe width="560" height="315" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="0" allowfullscreen></iframe>
+***Denver and Omaha***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Twin Cities and Chicago***
+<iframe width="315" height="177" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Boise and Salt Lake City***
-<iframe width="560" height="315" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
+***Kalamazoo and Pittsburgh***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Montreal***
+<iframe width="315" height="177" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Denver and Omaha***
-<iframe width="560" height="315" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="0" allowfullscreen></iframe>
+***Northeast U.S.***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boston***
+<iframe width="315" height="177" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Twin Cities, Madison, and Chicago***
-<iframe width="560" height="315" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="0" allowfullscreen></iframe>
+***New York***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***New Jersey and Baltimore***
+<iframe width="315" height="177" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="0" allowfullscreen></iframe>
 ---
-***Review of Open Mics in Kalamazoo and Pittsburgh***
-<iframe width="560" height="315" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="0" allowfullscreen></iframe>
----
-***Review of Open Mics in Montreal***
-<iframe width="560" height="315" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="0" allowfullscreen></iframe>
----
-***Review of Open Mics in the Northeast U.S.***
-<iframe width="560" height="315" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="0" allowfullscreen></iframe>
----
-***Review of Open Mics in Boston***
-<iframe width="560" height="315" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="0" allowfullscreen></iframe>
----
-***Review of Open Mics in New York***
-<iframe width="560" height="315" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="0" allowfullscreen></iframe>
----
-***Review of Open Mics in New Jersey and Baltimore***
-<iframe width="560" height="315" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="0" allowfullscreen></iframe>
----
-***Review of The Bluebird Cafe***
-<iframe width="560" height="315" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="0" allowfullscreen></iframe>
+***The Bluebird Cafe Nashville***
+<iframe width="315" height="177" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="10" allowfullscreen></iframe>
 
 ---
 ***Open Mic Across America Entry October 8, 2014***
