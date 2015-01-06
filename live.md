@@ -10,7 +10,7 @@ sitemap:
 Live
 ----
 
-There is something about a live performance that is completely different from a recorded track. Performing is a major outlet to share creativity. Though watching videos is still different from actually being there, this is where you will find links to live performances. Enjoy!
+&nbsp;&nbsp;&nbsp;&nbsp;There is something about a live performance that is completely different from a recorded track. Performing is a major outlet to share creativity. Though watching videos is still different from actually being there, this is where you will find links to live performances. Enjoy!
 
 ***Feature spot for Starving Artists LV***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Feature spot for the Human Experience***
 <iframe width="315" height="177" src="//www.youtube.com/embed/nePeMNMCT2U" frameborder="10" allowfullscreen></iframe>
