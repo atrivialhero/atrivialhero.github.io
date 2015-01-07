@@ -12,24 +12,25 @@ Open Mic Across America
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. To see pictures of the wonderful places I visited, check out my <a href="http://instagram.com/atrivialhero">Instagram</a>.
 
-<div class="large-4 small-9 columns">
+
 ***Introduction***
-
 <iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe>
-
+---
 ***Halfway Mark***
-
 <iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="10" allowfullscreen></iframe>
 ---
 ***100 Venues!***
 <iframe width="315" height="177" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="10" allowfullscreen></iframe>
 ---
-</div>
+
 
 Open Mic Reviews
 ----------
-***Los Angeles/Anaheim Area***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Northern California***
-<iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
+***Los Angeles/Anaheim Area***
+<iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe>
+---
+***Northern California***
+<iframe width="315" height="177" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="0" allowfullscreen></iframe>
 ---
 ***Pacific Northwest***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Boise and SLC***
 <iframe width="315" height="177" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="0" allowfullscreen></iframe>
