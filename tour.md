@@ -12,12 +12,19 @@ Open Mic Across America
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. To see pictures of the wonderful places I visited, check out my <a href="http://instagram.com/atrivialhero">Instagram</a>.
 
-***Introduction***&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;***Halfway Mark***
-<iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="0" allowfullscreen></iframe>
+<div class="large-4 small-9 columns">
+***Introduction***
+
+<iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe>
+
+***Halfway Mark***
+
+<iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="10" allowfullscreen></iframe>
 ---
 ***100 Venues!***
 <iframe width="315" height="177" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="10" allowfullscreen></iframe>
 ---
+</div>
 
 Open Mic Reviews
 ----------
