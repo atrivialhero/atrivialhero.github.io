@@ -10,6 +10,6 @@ sitemap:
 Love
 ----
 
-<h3 class="subheader">Coming Soon</h3>
+This page is dedicated to the many wonderful things I have discovered along my travels. The first section will be a list of artists and performers that create in many different ways. From poets to rappers to acoustic musicians to comedians to crafters, there are many talented people here. The second section highlights great venues I have come across all around the United States. The third section will focus on cool projects people are putting together and carrying out all over the world. The last section will focus on cool travel things like restaurants, roads, and hikes. Enjoy
 
-Contact us at [{{ site.contact }}](mailto:{{ site.contact }}).
+*If you see any out of date or incorrect material, if you have something you would like us to consider including, or if you wish to have your project removed from the site, contact us at [{{ site.contact }}](mailto:{{ site.contact }}).
