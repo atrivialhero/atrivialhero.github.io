@@ -27,12 +27,12 @@ Little Man, Little Guitar
 
 <iframe width="315" height="177" src="//www.youtube.com/embed/vL8Ix8u7CPo" frameborder="10" allowfullscreen></iframe>
 ---
-***Episode 3 and 4: "Underestimating Cinzia" and "Such Flava"***
+***Episodes 3 and 4: "Underestimating Cinzia" and "Such Flava"***
 <iframe width="315" height="177" src="//www.youtube.com/embed/abEtkt2E9PA" frameborder="10" allowfullscreen></iframe>
 
 <iframe width="315" height="177" src="//www.youtube.com/embed/bvldsk7Kboo" frameborder="10" allowfullscreen></iframe>
 ---
-***Episode 5 and 6: "Mensch" and "Cheers"***
+***Episodes 5 and 6: "Mensch" and "Cheers"***
 <iframe width="315" height="177" src="//www.youtube.com/embed/wBG-xmfy3rA" frameborder="10" allowfullscreen></iframe>
 
 <iframe width="315" height="177" src="//www.youtube.com/embed/kjnhnumURQw" frameborder="10" allowfullscreen></iframe>
