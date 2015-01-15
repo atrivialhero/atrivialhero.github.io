@@ -22,7 +22,7 @@ Little Man, Little Guitar
 ----
 ***Video series performing original songs on a small, travel, acoustic guitar. Check it!***
 
-***Episodes 1 and 2: "Forget the Ellipsis" and "Surviving the Vortex***
+***Episodes 1 and 2: "Forget the Ellipsis" and "Surviving the Vortex"***
 <iframe width="315" height="177" src="//www.youtube.com/embed/RTLurgbPDDE" frameborder="10" allowfullscreen></iframe>
 
 <iframe width="315" height="177" src="//www.youtube.com/embed/vL8Ix8u7CPo" frameborder="10" allowfullscreen></iframe>
