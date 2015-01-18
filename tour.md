@@ -9,7 +9,7 @@ sitemap:
 
 Open Mic Across America
 ----------
-
+<img src="OMA Emblem.jpg" alt="Open Mic Across America" height="662" width="1280">
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. To see pictures of the wonderful places I visited, check out my <a href="http://instagram.com/atrivialhero">Instagram</a>.
 
 
