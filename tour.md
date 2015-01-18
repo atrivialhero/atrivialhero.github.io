@@ -28,7 +28,7 @@ Open Mic Reviews
 ***Denver, Omaha, Trin Cities, and Chicago***
 <iframe width="315" height="177" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="10" allowfullscreen></iframe>
 ---
-***Kalamazoo, Pittsburgh, and Montreal ***
+***Kalamazoo, Pittsburgh, and Montreal***
 <iframe width="315" height="177" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="10" allowfullscreen></iframe>
 ---
 ***New England***
