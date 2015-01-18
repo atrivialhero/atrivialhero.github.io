@@ -13,54 +13,29 @@ Open Mic Across America
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;In Spring of 2014, I took off in my car alone to travel around the United States and play as many music venues as possible. The project evolved into Open Mic Across America. In the span of about six months, I traveled to thirty-six states, played over one hundred venues, and truly experienced life to an extent I had never before encountered. From the people I met to the places I saw to the artists I discovered, it was truly a wonder beyond simple description. The videos below are recaps of areas I visited and reviews of venues. Below the videos are blog posts I kept throughout my travels. To see pictures of the wonderful places I visited, check out my <a href="http://instagram.com/atrivialhero">Instagram</a>.
 
 
-***Introduction***
-<iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe>
+***A Trivial Tour Journal***
+<iframe width="315" height="177" src="//www.youtube.com/embed/0HgCQ4epmNo" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="10" allowfullscreen></iframe>
 ---
-***Halfway Mark***
-<iframe width="315" height="177" src="//www.youtube.com/embed/lWChNJytI8I" frameborder="10" allowfullscreen></iframe>
----
-***100 Venues!***
-<iframe width="315" height="177" src="//www.youtube.com/embed/MJMjiDjPKg4" frameborder="10" allowfullscreen></iframe>
----
-
 
 Open Mic Reviews
 ----------
-***Los Angeles/Anaheim Area***
-<iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe>
+***Northern and Southern California***
+<iframe width="315" height="177" src="//www.youtube.com/embed/nU8yAOXv34c" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="10" allowfullscreen></iframe>
 ---
-***Northern California***
-<iframe width="315" height="177" src="//www.youtube.com/embed/kn0YLuDDa5M" frameborder="10" allowfullscreen></iframe>
+***Pacific Northwest, Boise, and SLC***
+<iframe width="315" height="177" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="10" allowfullscreen></iframe>
 ---
-***Pacific Northwest***
-<iframe width="315" height="177" src="//www.youtube.com/embed/GnkMKO9l1rU" frameborder="10" allowfullscreen></iframe>
+***Denver, Omaha, Trin Cities, and Chicago***
+<iframe width="315" height="177" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="10" allowfullscreen></iframe>
 ---
-***Boise and SLC***
-<iframe width="315" height="177" src="//www.youtube.com/embed/Fi125sE5Hs4" frameborder="10" allowfullscreen></iframe>
+***Kalamazoo, Pittsburgh, and Montreal ***
+<iframe width="315" height="177" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="10" allowfullscreen></iframe>
 ---
-***Denver and Omaha***
-<iframe width="315" height="177" src="//www.youtube.com/embed/3Ea9a_TigVc" frameborder="10" allowfullscreen></iframe>
+***New England***
+<iframe width="315" height="177" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="10" allowfullscreen></iframe>
 ---
-***Twin Cities and Chicago***
-<iframe width="315" height="177" src="//www.youtube.com/embed/SHRpBuAujYc" frameborder="10" allowfullscreen></iframe>
----
-***Kalamazoo and Pittsburgh***
-<iframe width="315" height="177" src="//www.youtube.com/embed/1rTloRhP7_0" frameborder="10" allowfullscreen></iframe>
----
-***Montreal***
-<iframe width="315" height="177" src="//www.youtube.com/embed/h5tMhltBBNI" frameborder="10" allowfullscreen></iframe>
----
-***Northeast U.S.***
-<iframe width="315" height="177" src="//www.youtube.com/embed/Hn1by2Yxr5M" frameborder="10" allowfullscreen></iframe>
----
-***Boston***
-<iframe width="315" height="177" src="//www.youtube.com/embed/5cGfQ-TL2x4" frameborder="10" allowfullscreen></iframe>
----
-***New York***
-<iframe width="315" height="177" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="10" allowfullscreen></iframe>
----
-***New Jersey and Baltimore***
-<iframe width="315" height="177" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="10" allowfullscreen></iframe>
+***New York, New Jersey, and Baltimore***
+<iframe width="315" height="177" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="10" allowfullscreen></iframe>
 ---
 ***The Bluebird Cafe Nashville***
 <iframe width="315" height="177" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="10" allowfullscreen></iframe>
