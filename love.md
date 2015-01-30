@@ -21,21 +21,30 @@ Artists
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are great people I discovered making art in many awesome ways from all over the country. Links are provided with artists when available.
 
-***Peter and the Tribe***
-This three-piece band from Seattle, Washington provides a robust and soulful sound in live performances despite such a small lineup. Check out their info and <a href="http://peterandthetribe.bandcamp.com/releases">Music</a>.
+***Waking Fable***
+These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties instead of listening through your car speakers. Look at their <a href="http://www.wakingfable.com">Website</a> for more.
 
 ***Gray Thomas***
 Honestly, the best poem I have ever seen performed. Ever.
 <iframe width="315" height="177" src="https://www.youtube.com/embed/j_CSzwf5ww0" frameborder="0" allowfullscreen></iframe>
 
+***Mike Cheslik***
+Amazing freelance animator and writer. One of the hardest workers I came across throughout my entire trip. He has lots of wonderful work on his <a href="http://mikecheslik.com">Website</a>.
+
 ***iLike, iLike Designs***
 These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
+
+***Carey McComas***
+This wonderful spirit is housed in the body of one of the cutest people you could possibly encounter. Her fun, folksy ukulele songs incite smiles everytime. Her poems inspire. Most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble">Twitter</a>.
 
 ***Phil Jacobson***
 This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>.
 
 ***Noah the Wordsmith***
 This rapper/spoken-word poet from Southern California surprises with his thought provoking lyrics and natural flow. <a href="http://noahthewordsmith.bandcamp.com/releases">Music</a> can be found online.
+
+***Peter and the Tribe***
+This three-piece band from Seattle, Washington provides a robust and soulful sound in live performances despite such a small lineup. Check out their info and <a href="http://peterandthetribe.bandcamp.com/releases">Music</a>.
 
 ***Matthew Shone***
 This stand-up comedian from Las Vegas, Nevada uses a self-aware brand of comedy that is uundeniably endearing. Follow him on <a href="https://twitter.com/MatthewShone">Twitter</a>.
@@ -46,9 +55,6 @@ Las Vegas-based singer/songwriter creates a blend of folk songs that range from 
 ***RJ Walker***
 This poet is heavily involved in the slam scene in SLC as well as other areas. He has <a href="http://rjwalker.bandcamp.com">Poetry</a> available online.
 <iframe width="315" height="177" src="https://www.youtube.com/embed/8vpAIc3n-zE" frameborder="0" allowfullscreen></iframe>
-
-***Carey McComas***
-This wonderful spirit is housed in the body of a cute, tiny girl. Her fun, folky ukulele songs incite smiles everytime. Her poems inspire. But most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble">Twitter</a>
 
 ***Soul Daddy***
 As his name suggests, this MC and rapper is full of SOUL! He has a wonderful energy and a ton of talent. Give his <a href="http://www.souldaddymusic.com">Music</a> a listen.
@@ -71,9 +77,6 @@ This comedian and cartoonist hails from Boston, Massachusetts. He displays his w
 ***Sam Mulligan***
 A singer/songwriter in the Boston area that blends acoustic songs with 8-bit sounds. Fun, funny, and talented. Check out his <a href="http://www.sammulligan.com">Music</a>.
 
-***Mike Cheslik***
-Amazing freelance animator and writer is one of the hardest workers I came across throughout my entire trip. He has lots of wonderful work on his <a href="http://mikecheslik.com">Website</a>.
-
 ***John Burke***
 Here is a powerful poet whose love flows through him as he recites his rhymes.
 
@@ -82,9 +85,6 @@ From Baltimore, Maryland, this singer/songwriter uses his powerful voice and ene
 
 ***Ryan Bussiere***
 Very cool singer/songwriter in Dallas, Texas with cinematic themes pulsing through his songs. <a href="https://www.facebook.com/BussiereMusic">Facebook</a> can tell you more.
-
-***Waking Fable***
-These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties through your car speakers. Look at their <a href="http://www.wakingfable.com">Website</a> for more.
 
 ***High Noon Narrative***
 Young band in Las Vegas, Nevada lays soulful lyrics and melodies on top of flowing basslines and chord progressions. Check them out on <a href="https://www.facebook.com/highnoonnarrative">Facebook</a>.
