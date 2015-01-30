@@ -31,7 +31,7 @@ Honestly, the best poem I have ever seen performed. Ever.
 ***iLike, iLike Designs***
 These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
 
-***Phil Jacobsen***
+***Phil Jacobson***
 This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>.
 
 ***Noah the Wordsmith***
