@@ -86,79 +86,79 @@ Venues
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are cool venues I came across throughout the U.S. that are fun to play if you get the chance. Links are provided for venues when available.
 
 ***Kulaks Woodshed***
-
+<a href="http://kulakswoodshed.com">Website</a>
 
 ***Kupros***
-
+<a href="http://www.kuproscrafthouse.com">Website</a>
 
 ***Kelly's Olympian***
-
+<a href="http://kellysolympian.com">Website</a>
 
 ***Darrell's Tavern***
-
+<a href="http://darrellstavern.com">Website</a>
 
 ***Greenhouse Effect***
-
+<a href="https://www.facebook.com/groups/GreenhouseEffectOpen/">Facebook</a>
 
 ***The Walnut Room***
-
+<a href="http://www.thewalnutroom.com">Website</a>
 
 ***402 Arts Collective***
-
+<a href="http://402artscollective.org">Website</a>
 
 ***Lilly's Chicago***
-
+<a href="https://www.facebook.com/LillysChicago">Facebook</a>
 
 ***Club Cafe***
-
+<a href="http://clubcafelive.com">Website</a>
 
 ***Lizard Lounge***
-
+<a href="http://www.thelizardlounge.com">Website</a>
 
 ***Club Passim***
-
+<a href="http://www.clubpassim.org">Website</a>
 
 ***Bwe Kafe***
-
+<a href="http://www.bwekafe.com">Website</a>
 
 ***Open Mic Downstairs***
-
+<a href="http://openmicdownstairs.com">Website</a>
 
 ***The Bitter End***
-
+<a href="http://www.bitterend.com">Website</a>
 
 ***Sidewalk Cafe***
-
+<a href="http://www.sidewalkny.com">Website</a>
 
 ***Peace and a Cup of Joe***
-
+<a href="https://www.facebook.com/peaceandacupofjoe">Facebook</a>
 
 ***Circus Freaks Open Stage***
-
+<a href="http://circusfreaks.org">Website</a>
 
 ***Opening Bell Coffeehouse***
-
+<a href="hhttp://www.openingbellcoffee.com">Website</a>
 
 ***Firehouse Hostel***
-
+<a href="http://www.firehousehostel.com">Website</a>
 
 ***Speakeasy***
-
+<a href="http://www.speakeasyaustin.com">Website</a>
 
 ***Brickyard Pizza***
-
+<a href="http://brickyardpizza.com">Website</a>
 
 ***Tempe Center for the Arts***
+<a href="http://www.tempe.gov/city-hall/community-services/tempe-center-for-the-arts">Website</a>
 
-
-***CASA Sun-ba***
-
+***CASA Sunba***
+<a href="hhttp://www.casa-sunba.com">Website</a>
 
 ***The Beat***
-
+<a href="http://www.thebeatlv.com">Website</a>
 
 ***The Crepe***
-
+<a href="http://thecrepelasvegas.com">Website</a>
 
 
 <a name="Projects"></a>
@@ -170,19 +170,19 @@ Projects
 
 
 ***Roads to Courage***
-
+<a href="http://www.roadstocourage.com">Website</a>
 
 ***Couchsurfing***
-
+<a href="https://www.couchsurfing.com">Website</a>
 
 ***402 Arts Collective***
+<a href="http://402artscollective.org">Website</a>
 
-
-***Circus Freaks***
-
+***E.V.I.L.***
+<a href="http://circusfreaks.org/evil/">Website</a>
 
 ***Arcosanti***
-
+<a href="http://arcosanti.org">Website</a>
 
 <a name="Travel"></a>
 Travel
