@@ -25,61 +25,60 @@ Artists
 These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
 
 ***Noah the Wordsmith***
-
+<a href="http://noahthewordsmith.bandcamp.com/releases">Music</a>
 
 ***Peter and the Tribe***
-
+<a href="http://peterandthetribe.bandcamp.com/releases">Music</a>
 
 ***RJ Walker***
-
+<a href="http://rjwalker.bandcamp.com">Poetry</a>
 
 ***Carey McComas***
-
+<a href="https://twitter.com/c_scribble">Twitter</a>
 
 ***Soul Daddy***
-
+<a href="http://www.souldaddymusic.com">Music</a>
 
 ***The Omaha Guitar Trio***
-
+<a href="https://www.facebook.com/OmahaGuitarTrio">Facebook</a>
 
 ***Phil Jacobsen***
-
+<a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>
 
 ***Ivo Okafo***
-
+<a href="https://www.facebook.com/ivookafo">Facebook</a>
 
 ***Despicable***
-
-
-***Mike Why***
-
+<a href="http://www.despicablemusic.org">Website</a>
 
 ***Brian Warren***
-
+<a href="http://fandalism.com/baw409">Music</a>
 
 ***Ethan Diamond***
-
+<a href="http://diamondcomedy.com">Funny Stuff</a>
 
 ***Sam Mulligan***
-
+<a href="http://www.sammulligan.com">Music</a>
 
 ***Mike Cheslik***
+<a href="http://mikecheslik.com">Website</a>
 
+***John Burke***
 
 ***Jahiti***
-
+<a href="http://www.jahitiworld.com">Music</a>
 
 ***Ryan Bussiere***
-
+<a href="https://www.facebook.com/BussiereMusic">Music</a>
 
 ***Waking Fable***
-
+<a href="http://www.wakingfable.com">Website</a>
 
 ***Joey Hines***
-
+<a href="http://joeyhines.bandcamp.com">Bandcamp</a>
 
 ***High Noon Narrative***
-
+<a href="https://www.facebook.com/highnoonnarrative">Facebook</a>
 
 <a name="Venues"></a>
 Venues
