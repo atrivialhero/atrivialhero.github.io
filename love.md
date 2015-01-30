@@ -21,6 +21,8 @@ Artists
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are great people I discovered making art in many awesome ways from all over the country. Links are provided with artists when available.
 
+***iLike, iLike Designs***
+These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!"
 ***Noah the Wordsmith***
 
 ***Peter and the Tribe***
