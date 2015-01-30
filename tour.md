@@ -40,7 +40,14 @@ Open Mic Reviews
 <iframe width="315" height="177" src="//www.youtube.com/embed/c-oaOEnFHss" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="//www.youtube.com/embed/Nzn7WRdtVUs" frameborder="10" allowfullscreen></iframe>
 ---
 ***The Bluebird Cafe Nashville***
-<iframe width="315" height="177" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="10" allowfullscreen></iframe>
+<iframe width="560" height="315" src="//www.youtube.com/embed/_jxLpMrr4Vc" frameborder="10" allowfullscreen></iframe>
+---
+***Dallas and Austin, Texas***
+<iframe width="315" height="177" src="https://www.youtube.com/embed/Gt2-cnl9p0o" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="https://www.youtube.com/embed/7BcghCdqVeQ" frameborder="10" allowfullscreen></iframe>
+---
+***Albuquerque and Phoenix***
+<iframe width="315" height="177" src="https://www.youtube.com/embed/bYxH_2FwfkI" frameborder="10" allowfullscreen></iframe>
+
 
 ---
 ***Open Mic Across America Entry October 8, 2014***
