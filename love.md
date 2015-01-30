@@ -19,11 +19,96 @@ This page is dedicated to the many wonderful things I have discovered along my t
 <a name="Artists"></a>
 Artists
 ---
+***Noah the Wordsmith***
 
+***Peter and the Tribe***
+
+***RJ Walker***
+
+***Carey McComas***
+
+***Soul Daddy***
+
+***The Omaha Guitar Trio***
+
+***Phil Jacobsen***
+
+***Ivo Okafo***
+
+***Despicable***
+
+***Mike Why***
+
+***Brian Warren***
+
+***Ethan Diamond***
+
+***Sam Mulligan***
+
+***Mike Cheslik***
+
+***Jahiti***
+
+***Ryan Bussiere***
+
+***Waking Fable***
+
+***Joey Hines***
+
+***High Noon Narrative***
 
 <a name="Venues"></a>
 Venues
 ---
+***Kulaks Woodshed***
+
+***Kupros***
+
+***Kelly's Olympian***
+
+***Darrell's Tavern***
+
+***Greenhouse Effect***
+
+***The Walnut Room***
+
+***402 Arts Collective***
+
+***Lilly's Chicago***
+
+***Club Cafe***
+
+***Lizard Lounge***
+
+***Club Passim***
+
+***Bwe Kafe***
+
+***Open Mic Downstairs***
+
+***The Bitter End***
+
+***Sidewalk Cafe***
+
+***Peace and a Cup of Joe***
+
+***Circus Freaks Open Stage***
+
+***Opening Bell Coffeehouse***
+
+***Firehouse Hostel***
+
+***Speakeasy***
+
+***Brickyard Pizza***
+
+***Tempe Center for the Arts***
+
+***CASA Sun-ba***
+
+***The Beat***
+
+***The Crepe***
 
 
 <a name="Projects"></a>
