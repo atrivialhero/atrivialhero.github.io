@@ -26,41 +26,60 @@ These crafty sisters from Las Vegas, Nevada create fun, original accessories for
 
 ***Noah the Wordsmith***
 
+
 ***Peter and the Tribe***
+
 
 ***RJ Walker***
 
+
 ***Carey McComas***
+
 
 ***Soul Daddy***
 
+
 ***The Omaha Guitar Trio***
+
 
 ***Phil Jacobsen***
 
+
 ***Ivo Okafo***
+
 
 ***Despicable***
 
+
 ***Mike Why***
+
 
 ***Brian Warren***
 
+
 ***Ethan Diamond***
+
 
 ***Sam Mulligan***
 
+
 ***Mike Cheslik***
+
 
 ***Jahiti***
 
+
 ***Ryan Bussiere***
+
 
 ***Waking Fable***
 
+
 ***Joey Hines***
 
+
 ***High Noon Narrative***
+
 
 <a name="Venues"></a>
 Venues
@@ -69,53 +88,78 @@ Venues
 
 ***Kulaks Woodshed***
 
+
 ***Kupros***
+
 
 ***Kelly's Olympian***
 
+
 ***Darrell's Tavern***
+
 
 ***Greenhouse Effect***
 
+
 ***The Walnut Room***
+
 
 ***402 Arts Collective***
 
+
 ***Lilly's Chicago***
+
 
 ***Club Cafe***
 
+
 ***Lizard Lounge***
+
 
 ***Club Passim***
 
+
 ***Bwe Kafe***
+
 
 ***Open Mic Downstairs***
 
+
 ***The Bitter End***
+
 
 ***Sidewalk Cafe***
 
+
 ***Peace and a Cup of Joe***
+
 
 ***Circus Freaks Open Stage***
 
+
 ***Opening Bell Coffeehouse***
+
 
 ***Firehouse Hostel***
 
+
 ***Speakeasy***
+
 
 ***Brickyard Pizza***
 
+
 ***Tempe Center for the Arts***
+
 
 ***CASA Sun-ba***
 
+
 ***The Beat***
 
+
 ***The Crepe***
+
 
 
 <a name="Projects"></a>
@@ -125,15 +169,21 @@ Projects
 
 ***Punks in Vegas***
 
+
 ***Roads to Courage***
+
 
 ***Couchsurfing***
 
+
 ***402 Arts Collective***
+
 
 ***Circus Freaks***
 
+
 ***Arcosanti***
+
 
 <a name="Travel"></a>
 Travel
