@@ -25,60 +25,66 @@ Artists
 These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
 
 ***Noah the Wordsmith***
-<a href="http://noahthewordsmith.bandcamp.com/releases">Music</a>
+This rapper/spoken-word poet from Southern California surprises with his thought provoking lyrics and natural flow. <a href="http://noahthewordsmith.bandcamp.com/releases">Music</a> can be found online.
 
 ***Peter and the Tribe***
-<a href="http://peterandthetribe.bandcamp.com/releases">Music</a>
+This three-piece band from Seattle, Washington provides a robust and soulful sound in live performances despite such a small lineup. Check out their info and <a href="http://peterandthetribe.bandcamp.com/releases">Music</a>.
 
 ***RJ Walker***
-<a href="http://rjwalker.bandcamp.com">Poetry</a>
+This poet is heavily involved in the slam scene in SLC as well as other areas. He has <a href="http://rjwalker.bandcamp.com">Poetry</a> available online.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/8vpAIc3n-zE" frameborder="0" allowfullscreen></iframe>
+
+***Gray Thomas***
+Honestly, the best poem I have ever seen performed. Ever.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/j_CSzwf5ww0" frameborder="0" allowfullscreen></iframe>
 
 ***Carey McComas***
-<a href="https://twitter.com/c_scribble">Twitter</a>
+This wonderful spirit is housed in the body of a cute, tiny girl. Her fun, folky ukulele songs incite smiles everytime. Her poems inspire. But most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble">Twitter</a>
 
 ***Soul Daddy***
-<a href="http://www.souldaddymusic.com">Music</a>
+As his name suggests, this MC and rapper is full of SOUL! He has a wonderful energy and a ton of talent. Give his <a href="http://www.souldaddymusic.com">Music</a> a listen.
 
 ***The Omaha Guitar Trio***
-<a href="https://www.facebook.com/OmahaGuitarTrio">Facebook</a>
+These three young men in Omaha, Nebraska put casual guitarists to shame with their amazing arrangements on classical guitars. You can find out more on <a href="https://www.facebook.com/OmahaGuitarTrio">Facebook</a>.
 
 ***Phil Jacobsen***
-<a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>
+This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>.
 
 ***Ivo Okafo***
-<a href="https://www.facebook.com/ivookafo">Facebook</a>
+This rapper and beat boxer uses voice loops to create entire beats from scratch. His presence emanates from the stage in any venue. He has much more information on <a href="https://www.facebook.com/ivookafo">Facebook</a>.
 
 ***Despicable***
-<a href="http://www.despicablemusic.org">Website</a>
+Another Chicago-based singer/songwriter with a vast collection of folk songs. Inciteful lyrics and fun melodies found on his <a href="http://www.despicablemusic.org">Website</a>.
 
 ***Brian Warren***
-<a href="http://fandalism.com/baw409">Music</a>
+This gregarious musician is quite the personality throughout the Vermont and New Hampshire music scenes. Check out more information and his <a href="http://fandalism.com/baw409">Music</a>.
 
 ***Ethan Diamond***
-<a href="http://diamondcomedy.com">Funny Stuff</a>
+This comedian and cartoonist hails from Boston, Massachusetts. He displays his wit through his pictures and stand-up acts. Click to see <a href="http://diamondcomedy.com">Funny Stuff</a>.
 
 ***Sam Mulligan***
-<a href="http://www.sammulligan.com">Music</a>
+A singer/songwriter in the Boston area that blends acoustic songs with 8-bit sounds. Fun, funny, and talented. Check out his <a href="http://www.sammulligan.com">Music</a>.
 
 ***Mike Cheslik***
-<a href="http://mikecheslik.com">Website</a>
+Amazing freelance animator and writer is one of the hardest workers I came across throughout my entire trip. He has lots of wonderful work on his <a href="http://mikecheslik.com">Website</a>.
 
 ***John Burke***
+Here is a powerful poet whose love flows through him as he recites his rhymes.
 
 ***Jahiti***
-<a href="http://www.jahitiworld.com">Music</a>
+From Baltimore, Maryland, this singer/songwriter uses his powerful voice and energy to move a message of love and happiness wherever he can find ears to listen. He has <a href="http://www.jahitiworld.com">Music</a> online.
 
 ***Ryan Bussiere***
-<a href="https://www.facebook.com/BussiereMusic">Music</a>
+Very cool singer/songwriter in Dallas, Texas with cinematic themes pulsing through his songs. <a href="https://www.facebook.com/BussiereMusic">Facebook</a> can tell you more.
 
 ***Waking Fable***
-<a href="http://www.wakingfable.com">Website</a>
+These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties through your car speakers. Look at their <a href="http://www.wakingfable.com">Website</a> for more.
 
 ***Joey Hines***
-<a href="http://joeyhines.bandcamp.com">Bandcamp</a>
+Las Vegas-based singer/songwriter creates a blend of folk songs that range from silly to raw and brutally honest. Listen to him on <a href="http://joeyhines.bandcamp.com">Bandcamp</a>
 
 ***High Noon Narrative***
-<a href="https://www.facebook.com/highnoonnarrative">Facebook</a>
+Young band in Las Vegas, Nevada lays soulful lyrics and melodies on top of flowing basslines and chord progressions. Check them out on <a href="https://www.facebook.com/highnoonnarrative">Facebook</a>.
 
 <a name="Venues"></a>
 Venues
