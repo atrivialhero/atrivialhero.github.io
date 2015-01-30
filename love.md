@@ -19,6 +19,8 @@ This page is dedicated to the many wonderful things I have discovered along my t
 <a name="Artists"></a>
 Artists
 ---
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are great people I discovered making art in many awesome ways from all over the country. Links are provided with artists when available.
+
 ***Noah the Wordsmith***
 
 ***Peter and the Tribe***
@@ -60,6 +62,8 @@ Artists
 <a name="Venues"></a>
 Venues
 ---
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are cool venues I came across throughout the U.S. that are fun to play if you get the chance. Links are provided for venues when available.
+
 ***Kulaks Woodshed***
 
 ***Kupros***
@@ -114,6 +118,8 @@ Venues
 <a name="Projects"></a>
 Projects
 ---
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various initiatives worth checking out from people supporting local scenes to promoting mental health in cool collective ways.
+
 ***Punks in Vegas***
 
 ***Roads to Courage***
@@ -124,8 +130,9 @@ Projects
 
 ***Circus Freaks***
 
+***Arcosanti***
 
 <a name="Travel"></a>
 Travel
 ---
-
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are random, possibly under the radar visits I made on my roadtrip that I would recommend to all travelers out there.
