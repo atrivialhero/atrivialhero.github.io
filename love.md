@@ -16,17 +16,17 @@ This page is dedicated to the many wonderful things I have discovered along my t
 
 <a href = "#Artists"> Artists</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Venues"> Venues</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Projects"> Projects</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Travel"> Travel</a>
 
-Artists
+<span name="Artists">Artists</span>
 ---
 
 
-Venues
+<span name="Venues">Venues</span>
 ---
 
 
-Projetcs
+<span name="Projects">Projects</span>
 ---
 
 
-Travel
+<span name="Travel">Travel</span>
 ---
