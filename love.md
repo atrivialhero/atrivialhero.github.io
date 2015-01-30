@@ -22,7 +22,7 @@ Artists
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are great people I discovered making art in many awesome ways from all over the country. Links are provided with artists when available.
 
 ***Waking Fable***
-These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties instead of listening through your car speakers. Look at their <a href="http://www.wakingfable.com">Website</a> for more.
+These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties instead of listening through your car speakers. Look at their <a href="http://www.wakingfable.com" target="_blank">Website</a> for more.
 
 ***Gray Thomas***
 Honestly, the best poem I have ever seen performed. Ever.
