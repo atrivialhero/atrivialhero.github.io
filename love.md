@@ -17,7 +17,7 @@ This page is dedicated to the many wonderful things I have discovered along my t
 <a href = "#Artists"> Artists</a><a href = "#Venues"> Venues</a><a href = "#Projects"> Projects</a><a href = "#Travel"> Travel</a>
 
 
-Artists
+Name = Artists
 ---
 
 
@@ -28,5 +28,5 @@ Venues
 Projetcs
 ---
 
-Travel
+Name = Travel
 ---
