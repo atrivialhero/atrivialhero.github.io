@@ -21,6 +21,9 @@ Live
 <iframe width="315" height="177" src="//www.youtube.com/embed/IcSl7dDQ7-U" frameborder="10" allowfullscreen></iframe>
 ---
 
+***Stripped Down Sessions with Punks in Vegas***
+<iframe width="315" height="177" src="https://www.youtube.com/embed/KDuwhG28Tig" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="https://www.youtube.com/embed/lhFxoJFuo1U" frameborder="10" allowfullscreen></iframe>
+---
 Little Man, Little Guitar
 ----
 ***Video series performing original songs on a small, travel, acoustic guitar. Check it!***
