@@ -21,22 +21,31 @@ Artists
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are great people I discovered making art in many awesome ways from all over the country. Links are provided with artists when available.
 
-***iLike, iLike Designs***
-These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
-
-***Noah the Wordsmith***
-This rapper/spoken-word poet from Southern California surprises with his thought provoking lyrics and natural flow. <a href="http://noahthewordsmith.bandcamp.com/releases">Music</a> can be found online.
-
 ***Peter and the Tribe***
 This three-piece band from Seattle, Washington provides a robust and soulful sound in live performances despite such a small lineup. Check out their info and <a href="http://peterandthetribe.bandcamp.com/releases">Music</a>.
-
-***RJ Walker***
-This poet is heavily involved in the slam scene in SLC as well as other areas. He has <a href="http://rjwalker.bandcamp.com">Poetry</a> available online.
-<iframe width="315" height="177" src="https://www.youtube.com/embed/8vpAIc3n-zE" frameborder="0" allowfullscreen></iframe>
 
 ***Gray Thomas***
 Honestly, the best poem I have ever seen performed. Ever.
 <iframe width="315" height="177" src="https://www.youtube.com/embed/j_CSzwf5ww0" frameborder="0" allowfullscreen></iframe>
+
+***iLike, iLike Designs***
+These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns">iLike iLike Designs</a>!
+
+***Phil Jacobsen***
+This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>.
+
+***Noah the Wordsmith***
+This rapper/spoken-word poet from Southern California surprises with his thought provoking lyrics and natural flow. <a href="http://noahthewordsmith.bandcamp.com/releases">Music</a> can be found online.
+
+***Matthew Shone***
+This stand-up comedian from Las Vegas, Nevada uses a self-aware brand of comedy that is uundeniably endearing. Follow him on <a href="https://twitter.com/MatthewShone">Twitter</a>.
+
+***Joey Hines***
+Las Vegas-based singer/songwriter creates a blend of folk songs that range from silly to raw and brutally honest. Listen to him on <a href="http://joeyhines.bandcamp.com">Bandcamp</a>
+
+***RJ Walker***
+This poet is heavily involved in the slam scene in SLC as well as other areas. He has <a href="http://rjwalker.bandcamp.com">Poetry</a> available online.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/8vpAIc3n-zE" frameborder="0" allowfullscreen></iframe>
 
 ***Carey McComas***
 This wonderful spirit is housed in the body of a cute, tiny girl. Her fun, folky ukulele songs incite smiles everytime. Her poems inspire. But most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble">Twitter</a>
@@ -46,9 +55,6 @@ As his name suggests, this MC and rapper is full of SOUL! He has a wonderful ene
 
 ***The Omaha Guitar Trio***
 These three young men in Omaha, Nebraska put casual guitarists to shame with their amazing arrangements on classical guitars. You can find out more on <a href="https://www.facebook.com/OmahaGuitarTrio">Facebook</a>.
-
-***Phil Jacobsen***
-This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson">Reverb Nation</a>.
 
 ***Ivo Okafo***
 This rapper and beat boxer uses voice loops to create entire beats from scratch. His presence emanates from the stage in any venue. He has much more information on <a href="https://www.facebook.com/ivookafo">Facebook</a>.
@@ -79,9 +85,6 @@ Very cool singer/songwriter in Dallas, Texas with cinematic themes pulsing throu
 
 ***Waking Fable***
 These musicians in Austin, Texas create a unique sound so smoothe that they can make you feel like you're in a lounge in the twenties through your car speakers. Look at their <a href="http://www.wakingfable.com">Website</a> for more.
-
-***Joey Hines***
-Las Vegas-based singer/songwriter creates a blend of folk songs that range from silly to raw and brutally honest. Listen to him on <a href="http://joeyhines.bandcamp.com">Bandcamp</a>
 
 ***High Noon Narrative***
 Young band in Las Vegas, Nevada lays soulful lyrics and melodies on top of flowing basslines and chord progressions. Check them out on <a href="https://www.facebook.com/highnoonnarrative">Facebook</a>.
