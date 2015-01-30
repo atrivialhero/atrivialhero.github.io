@@ -114,8 +114,18 @@ Venues
 <a name="Projects"></a>
 Projects
 ---
+***Punks in Vegas***
+
+***Roads to Courage***
+
+***Couchsurfing***
+
+***402 Arts Collective***
+
+***Circus Freaks***
 
 
 <a name="Travel"></a>
 Travel
 ---
+
