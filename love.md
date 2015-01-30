@@ -15,18 +15,18 @@ This page is dedicated to the many wonderful things I have discovered along my t
 *If you see any out of date or incorrect material, if you have something you would like us to consider including, or if you wish to have your project removed from the site, contact us at [{{ site.contact }}](mailto:{{ site.contact }}).
 
 <a href = "#Artists"> Artists</a><a href = "#Venues"> Venues</a><a href = "#Projects"> Projects</a><a href = "#Travel"> Travel</a>
-Name=Artists
-Name=Venues
-Name=Projects
-Name=Travel
-
-***Artists***
 
 
-***Venues***
+Artists
+---
 
 
-***Projects***
+Venues
+---
 
 
-***Travel***
+Projetcs
+---
+
+Travel
+---
