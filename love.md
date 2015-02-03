@@ -179,7 +179,7 @@ Projects
 These guys do such a great job supporting the music scene out in Vegas, and not just for punk rock. They do some awesome things interacting both with local acts as well as large, out of state acts. They can be found at pretty much every big show taking pictures, but then you can check out local, unknown bands on their youtube. Definitely check out all the great things Punks in Vegas are doing on their <a href="http://www.punksinvegas.com" target="_blank">Website</a>.
 
 ***Roads to Courage***
-I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and The U.S. They hitchhiked and interviewed people about what fear and courage means from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
+I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and the U.S. They hitchhiked and interviewed people about what fear and courage means from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
 
 ***Couchsurfing***
 For travelers, this is one of the coolest, smartest things you can be part of. It's not only for cheap travel, but for amazing experiences and new, cool people to become part of your life. Learn more from their <a href="https://www.couchsurfing.com" target="_blank">Website</a>.
