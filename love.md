@@ -95,79 +95,79 @@ Venues
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are cool venues I came across throughout the U.S. that are fun to play if you get the chance. Links are provided for venues when available.
 
 ***Kulaks Woodshed***
-<a href="http://kulakswoodshed.com" target="_blank">Website</a>
+This was one of my favorite venues in the entire country. Located in North Hollywood, Kulak's woodshed is a haven for songwriters. Check out their <a href="http://kulakswoodshed.com" target="_blank">Website</a>.
 
 ***Kupros***
-<a href="http://www.kuproscrafthouse.com" target="_blank">Website</a>
+Kupros is a fun bar in downtown Sacramento that looks like a Frat house from the outside, but it is much cooler inside and I didn't have any fear of being hazed or roofied. The host of their open mic was one of the kindest people I encountered. Here is their <a href="http://www.kuproscrafthouse.com" target="_blank">Website</a>.
 
 ***Kelly's Olympian***
-<a href="http://kellysolympian.com" target="_blank">Website</a>
+Cool bar right in the middle of downtown Portland. It has a separate room with a big stage and great sound system. Learn more at their <a href="http://kellysolympian.com" target="_blank">Website</a>.
 
 ***Darrell's Tavern***
-<a href="http://darrellstavern.com" target="_blank">Website</a>
+Small bar on the northern end of Seattle. They do a great open mic with lots of energy and talent. Check them out on their <a href="http://darrellstavern.com" target="_blank">Website</a>.
 
 ***Greenhouse Effect***
-<a href="https://www.facebook.com/groups/GreenhouseEffectOpen/" target="_blank">Facebook</a>
+This houses a great community of writers from poets to songwriters to comedians. An intimate cafe feel in Salt Lake City. Learn all about their open mic on <a href="https://www.facebook.com/groups/GreenhouseEffectOpen/" target="_blank">Facebook</a>.
 
 ***The Walnut Room***
-<a href="http://www.thewalnutroom.com" target="_blank">Website</a>
+The area of Denver this bar is located in seems sketchy, but it is a diamond in the rough. Once inside, this bar contains a large room with a great stage and is probably one of the top three sounding venues I performed in on my whole trip. Give their <a href="http://www.thewalnutroom.com" target="_blank">Website</a> a look.
 
 ***402 Arts Collective***
-<a href="http://402artscollective.org" target="_blank">Website</a>
+This venue can be found in Omaha's Benson district. It appears to be a small cafe, but it contains a large stage and great sound system that allows for a nice blend of intimacy between performers and audiences while still having a big stage feel. Read about the great things they are doing on their <a href="http://402artscollective.org" target="_blank">Website</a>.
 
 ***Lilly's Chicago***
-<a href="https://www.facebook.com/LillysChicago" target="_blank">Facebook</a>
+This is a very small bar in Chicago, but it hosts a great open mic and is conveniently located. Keep up to date with them on <a href="https://www.facebook.com/LillysChicago" target="_blank">Facebook</a>.
 
 ***Club Cafe***
-<a href="http://clubcafelive.com" target="_blank">Website</a>
+This venue in Pittsburgh provides a great stage with clear sound. It's got a bit of a lounge atmosphere to it, but is well worth checking out their <a href="http://clubcafelive.com" target="_blank">Website</a> at least.
 
 ***Lizard Lounge***
-<a href="http://www.thelizardlounge.com" target="_blank">Website</a>
+Cool bar in Boston right in Harvard square. They house an open mic in their basement that floods with talent and ingenuity from songwriters. Learn more on their <a href="http://www.thelizardlounge.com" target="_blank">Website</a>.
 
 ***Club Passim***
-<a href="http://www.clubpassim.org" target="_blank">Website</a>
+Another great venue in Harvard square. This small restaurant provides a big stage and friendly audience. Their <a href="http://www.clubpassim.org" target="_blank">Website</a> can tell you more.
 
 ***Bwe Kafe***
-<a href="http://www.bwekafe.com" target="_blank">Website</a>
+Small, intimate cafe space in Hoboken, NJ. They hold Hoboken spoken and provide a great outlet for many talented artists to share. Check it out on their <a href="http://www.bwekafe.com" target="_blank">Website</a>.
 
 ***Open Mic Downstairs***
-<a href="http://openmicdownstairs.com" target="_blank">Website</a>
+This was one of the coolest opn mics in the whole country. In New York City, tons of talented people fill this space, though this one leans more heavily on the comedic side than many other open mics. Feel comfortable in this great workshopping space. And of course, here is the <a href="http://openmicdownstairs.com" target="_blank">Website</a>.
 
 ***The Bitter End***
-<a href="http://www.bitterend.com" target="_blank">Website</a>
+Another great venue in New York City, the Bitter End is right near the NYU campus and provides a great stage, with clear sound, and access to a good audience. Check them out on their <a href="http://www.bitterend.com" target="_blank">Website</a>.
 
 ***Sidewalk Cafe***
-<a href="http://www.sidewalkny.com" target="_blank">Website</a>
+Cool cafe space in New York City with a great stage and good listening room. Read all about it on their <a href="http://www.sidewalkny.com" target="_blank">Website</a>.
 
 ***Peace and a Cup of Joe***
-<a href="https://www.facebook.com/peaceandacupofjoe" target="_blank">Facebook</a>
+This is a small cafe space in downtown Baltimore, but wow were the people running their open mic kind. Some of the kindest, most talented, and warm people visit this venue regularly. Check them out on <a href="https://www.facebook.com/peaceandacupofjoe" target="_blank">Facebook</a>.
 
 ***Circus Freaks Open Stage***
-<a href="http://circusfreaks.org" target="_blank">Website</a>
+This is a very cool show in Plano, Texas (a suburb of Dallas on the northern end). The acts at this show vary across a wide spectrum providing fun entertainment on a regular basis. See how you can get involved on their <a href="http://circusfreaks.org" target="_blank">Website</a>.
 
 ***Opening Bell Coffeehouse***
-<a href="hhttp://www.openingbellcoffee.com" target="_blank">Website</a>
+This is a very cool venue in Dallas, Texas. It's got a good, low stage with an intimate cafe feel. Seems to be a popular spot as well, so see when you'd need to arrive by checking out their <a href="hhttp://www.openingbellcoffee.com" target="_blank">Website</a>.
 
 ***Firehouse Hostel***
-<a href="http://www.firehousehostel.com" target="_blank">Website</a>
+This hostel in Austin, Texas hides a bar/lounge that appears to be straight out of the 20's. You slide back a bookshelf to find a great, intimate venue with some of the best sound I encountered across the country. Definitely in my top three. Learn all about it on their <a href="http://www.firehousehostel.com" target="_blank">Website</a>.
 
 ***Speakeasy***
-<a href="http://www.speakeasyaustin.com" target="_blank">Website</a>
+This downtown Austin bar is several stories high with a whole lot to offer. From a big stage to a bowling alley to a rooftop bar, this bar is just plain fun. Learn more from their <a href="http://www.speakeasyaustin.com" target="_blank">Website</a>.
 
 ***Brickyard Pizza***
-<a href="http://brickyardpizza.com" target="_blank">Website</a>
+Right across from the campus of the University of Albuquerque, Brickyard Pizza pulls a fun college crowd. It's a small bar space, but they pack it with fun. Read more on their <a href="http://brickyardpizza.com" target="_blank">Website</a>.
 
 ***Tempe Center for the Arts***
-<a href="http://www.tempe.gov/city-hall/community-services/tempe-center-for-the-arts" target="_blank">Website</a>
+This is a large venue with multiple stages and theaters to put on a variety of different shows. It is very close to the ASU campus in Tempe, Arizona. Check out their programs on their <a href="http://www.tempe.gov/city-hall/community-services/tempe-center-for-the-arts" target="_blank">Website</a>.
 
 ***CASA Sunba***
-<a href="hhttp://www.casa-sunba.com" target="_blank">Website</a>
+This is a very small space, but it is an absolute blast to play. Again, right near the ASU campus in Tempe, this bar just brings the fun for performances. See what's on their schedule on their <a href="hhttp://www.casa-sunba.com" target="_blank">Website</a>.
 
 ***The Beat***
-<a href="http://www.thebeatlv.com" target="_blank">Website</a>
+This is a very cool venue in Downtown Las Vegas. They host the Human Experience which is one of the most consistently, well attended open mics I have seen anywhere in the U.S. They host the occasional concert as well. Definitely see when you can catch some fun on their <a href="http://www.thebeatlv.com" target="_blank">Website</a>.
 
 ***The Crepe***
-<a href="http://thecrepelasvegas.com" target="_blank">Website</a>
+This cafe space is located on the west side of Las Vegas. The owners support local acts and hope to nurture talent to grow. Check out their <a href="http://thecrepelasvegas.com" target="_blank">Website</a>.
 
 
 <a name="Projects"></a>
@@ -176,22 +176,22 @@ Projects
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various initiatives worth checking out from people supporting local scenes to promoting mental health in cool collective ways.
 
 ***Punks in Vegas***
-<a href="http://www.punksinvegas.com" target="_blank">Website</a>
+These guys do such a great job supporting the music scene out in Vegas, and not just for punk rock. They do some awesome things interacting both with local acts as well as large, out of state acts. They can be found at pretty much every big show taking pictures, but then you can check out local, unknown bands on their youtube. Definitely check out all the great things Punks in Vegas are doing on their <a href="http://www.punksinvegas.com" target="_blank">Website</a>.
 
 ***Roads to Courage***
-<a href="http://www.roadstocourage.com" target="_blank">Website</a>
+I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and The U.S. They hitchhiked and interviewed people about what fear and courage means from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
 
 ***Couchsurfing***
-<a href="https://www.couchsurfing.com" target="_blank">Website</a>
+For travelers, this is one of the coolest, smartest things you can be part of. It's not only for cheap travel, but for amazing experiences and new, cool people to become part of your life. Learn more from their <a href="https://www.couchsurfing.com" target="_blank">Website</a>.
 
 ***402 Arts Collective***
-<a href="http://402artscollective.org" target="_blank">Website</a>
+These guys in Omaha, Nebraska offer so much help to artists, especially young, developing ones. They provide a great stage, recording assistance, lessons, and much more. Get it straight from the source on their <a href="http://402artscollective.org" target="_blank">Website</a>.
 
 ***E.V.I.L.***
-<a href="http://circusfreaks.org/evil/" target="_blank">Website</a>
+The Existential Variety Improv Lab is a project put forth by Circus Freaks just north of Dallas, Texas. They do some awesome workshops and really help people grow and develop their performance skills. Check it out on their <a href="http://circusfreaks.org/evil/" target="_blank">Website</a>.
 
 ***Arcosanti***
-<a href="http://arcosanti.org" target="_blank">Website</a>
+An architect with a dream of a sustainable future thought up the idea of "arcologies" which would blend architecture and ecology. He designed cities for specific areas to take advantage of what the landscape and climate provide instead of creating suburban sprawl. Arcosanti is the only one to currently be in action, and even so, only a small percentage of the plans exist, but it is definitely something worth checking out and supporting. Learn more from their <a href="http://arcosanti.org" target="_blank">Website</a>.
 
 <a name="Travel"></a>
 Travel
