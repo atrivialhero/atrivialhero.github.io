@@ -169,6 +169,7 @@ This is a very small space, but it is an absolute blast to play. Again, right ne
 
 ***The Beat***
 This is a very cool venue in Downtown Las Vegas. They host the Human Experience which is one of the most consistently, well attended open mics I have seen anywhere in the U.S. They host the occasional concert as well. Definitely see when you can catch some fun on their <a href="http://www.thebeatlv.com" target="_blank">Website</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/WqZPmNlwKXQ" frameborder="0" allowfullscreen></iframe>
 
 ***The Crepe***
 This cafe space is located on the west side of Las Vegas. The owners support local acts and hope to nurture talent to grow. Check out their <a href="http://thecrepelasvegas.com" target="_blank">Website</a>.
