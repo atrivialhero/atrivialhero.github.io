@@ -45,6 +45,7 @@ This rapper/spoken-word poet from Southern California surprises with his thought
 
 ***Peter and the Tribe***
 This three-piece band from Seattle, Washington provides a robust and soulful sound in live performances despite such a small lineup. Check out their info and <a href="http://peterandthetribe.bandcamp.com/releases" target="_blank">Music</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/4MxPo5CpnX4" frameborder="0" allowfullscreen></iframe>
 
 ***Matthew Shone***
 This stand-up comedian from Las Vegas, Nevada uses a self-aware brand of comedy that is uundeniably endearing. Follow him on <a href="https://twitter.com/MatthewShone" target="_blank">Twitter</a>.
@@ -73,6 +74,7 @@ This gregarious musician is quite the personality throughout the Vermont and New
 
 ***Ethan Diamond***
 This comedian and cartoonist hails from Boston, Massachusetts. He displays his wit through his pictures and stand-up acts. Click to see <a href="http://diamondcomedy.com" target="_blank">Funny Stuff</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/o0kAQsNLumc" frameborder="0" allowfullscreen></iframe>
 
 ***Sam Mulligan***
 A singer/songwriter in the Boston area that blends acoustic songs with 8-bit sounds. Fun, funny, and talented. Check out his <a href="http://www.sammulligan.com" target="_blank">Music</a>.
@@ -115,6 +117,7 @@ The area of Denver this bar is located in seems sketchy, but it is a diamond in 
 
 ***402 Arts Collective***
 This venue can be found in Omaha's Benson district. It appears to be a small cafe, but it contains a large stage and great sound system that allows for a nice blend of intimacy between performers and audiences while still having a big stage feel. Read about the great things they are doing on their <a href="http://402artscollective.org" target="_blank">Website</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/o0kAQsNLumc" frameborder="0" allowfullscreen></iframe>
 
 ***Lilly's Chicago***
 This is a very small bar in Chicago, but it hosts a great open mic and is conveniently located. Keep up to date with them on <a href="https://www.facebook.com/LillysChicago" target="_blank">Facebook</a>.
