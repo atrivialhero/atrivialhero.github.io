@@ -96,6 +96,7 @@ Venues
 
 ***Kulaks Woodshed***
 This was one of my favorite venues in the entire country. Located in North Hollywood, Kulak's woodshed is a haven for songwriters. Check out their <a href="http://kulakswoodshed.com" target="_blank">Website</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/9keu8DI_-F0" frameborder="0" allowfullscreen></iframe>
 
 ***Kupros***
 Kupros is a fun bar in downtown Sacramento that looks like a Frat house from the outside, but it is much cooler inside and I didn't have any fear of being hazed or roofied. The host of their open mic was one of the kindest people I encountered. Here is their <a href="http://www.kuproscrafthouse.com" target="_blank">Website</a>.
@@ -180,6 +181,7 @@ These guys do such a great job supporting the music scene out in Vegas, and not 
 
 ***Roads to Courage***
 I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and the U.S. They hitchhiked and interviewed people about what fear and courage means from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/D_glECed8tg" frameborder="0" allowfullscreen></iframe>
 
 ***Couchsurfing***
 For travelers, this is one of the coolest, smartest things you can be part of. It's not only for cheap travel, but for amazing experiences and new, cool people to become part of your life. Learn more from their <a href="https://www.couchsurfing.com" target="_blank">Website</a>.
