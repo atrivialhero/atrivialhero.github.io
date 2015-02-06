@@ -117,7 +117,7 @@ The area of Denver this bar is located in seems sketchy, but it is a diamond in 
 
 ***402 Arts Collective***
 This venue can be found in Omaha's Benson district. It appears to be a small cafe, but it contains a large stage and great sound system that allows for a nice blend of intimacy between performers and audiences while still having a big stage feel. Read about the great things they are doing on their <a href="http://402artscollective.org" target="_blank">Website</a>.
-<iframe width="315" height="177" src="https://www.youtube.com/embed/o0kAQsNLumc" frameborder="0" allowfullscreen></iframe>
+<iframe width="315" height="177" src="https://www.youtube.com/embed/scKZH19TWZo" frameborder="0" allowfullscreen></iframe>
 
 ***Lilly's Chicago***
 This is a very small bar in Chicago, but it hosts a great open mic and is conveniently located. Keep up to date with them on <a href="https://www.facebook.com/LillysChicago" target="_blank">Facebook</a>.
