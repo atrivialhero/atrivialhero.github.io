@@ -14,7 +14,7 @@ This page is dedicated to the many wonderful things I have discovered along my t
 
 *If you see any out of date or incorrect material, if you have something you would like us to consider including, or if you wish to have your project removed from the site, contact us at [{{ site.contact }}](mailto:{{ site.contact }}).
 
-<a href = "#Artists"> Artists</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Venues"> Venues</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Projects"> Projects</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Travel"> Travel</a>
+<a href = "#Artists"> Artists</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Venues"> Venues</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Projects"> Projects</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Destinations"> Destinations</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href = "#Food"> Food</a>
 
 <a name="Artists"></a>
 Artists
@@ -199,28 +199,19 @@ The Existential Variety Improv Lab is a project put forth by Circus Freaks just 
 ***Arcosanti***
 An architect with a dream of a sustainable future thought up the idea of "arcologies" which would blend architecture and ecology. He designed cities for specific areas to take advantage of what the landscape and climate provide instead of creating suburban sprawl. Arcosanti is the only one to currently be in action, and even so, only a small percentage of the plans exist, but it is definitely something worth checking out and supporting. Learn more from their <a href="http://arcosanti.org" target="_blank">Website</a>.
 
-<a name="Travel"></a>
-Travel
+<a name="Destinations"></a>
+Destionations
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are random, possibly under the radar visits I made on my roadtrip that I would recommend to all travelers out there.
 
 ***The Pacific Coast Highway***
 If you are traveling through any of the states along the Pacific Ocean, it is well worth it to take a strecth fo the Pacific Coast Highway, or the PCH for short. It will add time to your travel, but it will also add beauty and wonder. This road traces the coast so you are driving right along the water, winding around cliffs and through redwood forests. Stop at Big Sur and look out at the horizon to feel the vastness of our world.<a href="http://www.pacific-coast-highway-travel.com" target="_blank">More information here</a>.
 
-***Eggslut***
-Awesome food from an unexpected source in downtown Los Angeles. If you like breakfast (and any person that doesn't is missing out) Eggslut serves some tasty sandwiches. <a href="http://www.eggslut.com/#about" target="_blank">Website</a> here.
-
 ***Powell's Books***
 This huge bookstore in downtown Portland is an avid reader's wet dream. An entire city block and multiple stories weave through every genre of book imaginable. Learn all about the magic <a href="http://www.powells.com" target="_blank">here</a>.
 
-***Piroshky***
-These delightful Russian pastries can be found all over Seattle, Washington. I honestly do not know why they aren't served all voer America because they are delicious. The most popular bakery for them can be found <a href="http://www.piroshkybakery.com" target="_blank">here</a>.
-
 ***The Experience Music Project***
 This museum in Seattle is right next door to the Space Needle, and in my opinion, it is much more worth the visit than the Space Needle is. The EMP provides a hands-learning experience that thrusts visitors into the vibrant Seattle music scene. Learn what you can experience <a href="http://www.empmuseum.org" target="_blank">here</a>.
-
-***Li'l Woody's***
-Honestly, the BEST burger I have ever had in my life was from this restaurant and it was called the Fig and Pig. You can also try their signature dipping sauce called "Crack" which is a tiny milkshake to dip your fries in. Check out <a href="http://lilwoodys.com" target="_blank">Li'l Woody's</a>.
 
 ***Beacon Rock***
 There is tons of great hiking in the Pacific Northwest, but a fairly simple one that gets you amazing views is Beacon Rock. This large rock right on the Oregon-Washington border can be summitted in under half an hour if you hustle and it provides an awesome perspective filled with green. Read all about it <a href="http://www.parks.wa.gov/474/Beacon-Rock" target="_blank">here</a>.
@@ -234,20 +225,10 @@ A huge museum in a great city, this place is just plain fun. Educational on all 
 ***The Second City***
 This comedy show with a residency in Chicago is the funniest thing I have ever had the pleasure of seeing. With a list of alumnis like Tina Fey, Chris Farly, Mike Myers, and many more, this show clearly holds a high standard and is guaranteed to make you laugh every time.Learn how you can book an evening of laughs <a href="http://www.secondcity.com" target="_blank">here</a>.
 
-***BRGR***
-If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
-
 ***Ben and Jerry's Tour Factory***
 I was in the middle of Vermont without a clue what to do when a friend suggested I tour the Ben and Jerry's factory. I had no idea it was in Vermont. I drove there immediately and bought a ticket for the next tour. $4.00 got me a half hour tour of the factory that taught me all about the company and its history (it's a really cool company too!) and then the tour ends in their "Laboratory" where they create ice cream flavors. You get a sample of an experimental flavor of ice cream that changes daily. How can anyone say "no" to that? Check it out <a href="http://www.benjerry.com/about-us/factory-tours" target="_blank">here</a>.
 
-***Lobster Rolls and Whoopie Pies***
-So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. <a href="I got mine from http://www.wickedwhoopies.com" target="_blank">here</a>.
-
 ***The Dartmouth Campus***
-
-***Lou's Restaurant***
-
-***Pie Face***
 
 ***Strand Bookstore***
 
@@ -255,13 +236,9 @@ So if you are going to Maine, you have to eat Lobster. It is pretty much a rule.
 
 ***Edgar Allan Poe's Grave***
 
-***Crab Cakes at Lexington Market***
-
 ***Cooper's Rock State Forest***
 
 ***The Musician's Hall of Fame***
-
-***POPS***
 
 ***Grafitti Park***
 
@@ -270,3 +247,31 @@ So if you are going to Maine, you have to eat Lobster. It is pretty much a rule.
 ***Driving through Arizona***
 
 ***Red Rock Canyon***
+
+<a name="Food"></a>
+Food
+---
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various, delicious foods I ate throughout my travels that I would recommend to all anyone that enjoys eating... so basically everyone.
+
+***POPS***
+
+***Crab Cakes at Lexington Market***
+
+***Lou's Restaurant***
+
+***Pie Face***
+
+***Lobster Rolls and Whoopie Pies***
+So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. <a href="I got mine from http://www.wickedwhoopies.com" target="_blank">here</a>.
+
+***BRGR***
+If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
+
+***Li'l Woody's***
+Honestly, the BEST burger I have ever had in my life was from this restaurant and it was called the Fig and Pig. You can also try their signature dipping sauce called "Crack" which is a tiny milkshake to dip your fries in. Check out <a href="http://lilwoodys.com" target="_blank">Li'l Woody's</a>.
+
+***Eggslut***
+Awesome food from an unexpected source in downtown Los Angeles. If you like breakfast (and any person that doesn't is missing out) Eggslut serves some tasty sandwiches. <a href="http://www.eggslut.com/#about" target="_blank">Website</a> here.
+
+***Piroshky***
+These delightful Russian pastries can be found all over Seattle, Washington. I honestly do not know why they aren't served all voer America because they are delicious. The most popular bakery for them can be found <a href="http://www.piroshkybakery.com" target="_blank">here</a>.
