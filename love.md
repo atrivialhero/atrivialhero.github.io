@@ -200,7 +200,7 @@ The Existential Variety Improv Lab is a project put forth by Circus Freaks just 
 An architect with a dream of a sustainable future thought up the idea of "arcologies" which would blend architecture and ecology. He designed cities for specific areas to take advantage of what the landscape and climate provide instead of creating suburban sprawl. Arcosanti is the only one to currently be in action, and even so, only a small percentage of the plans exist, but it is definitely something worth checking out and supporting. Learn more from their <a href="http://arcosanti.org" target="_blank">Website</a>.
 
 <a name="Destinations"></a>
-Destionations
+Destinations
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are random, possibly under the radar visits I made on my roadtrip that I would recommend to all travelers out there.
 
