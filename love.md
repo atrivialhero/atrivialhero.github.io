@@ -224,6 +224,7 @@ Honestly, the BEST burger I have ever had in my life was from this restaurant an
 
 ***Beacon Rock***
 There is tons of great hiking in the Pacific Northwest, but a fairly simple one that gets you amazing views is Beacon Rock. This large rock right on the Oregon-Washington border can be summitted in under half an hour if you hustle and it provides an awesome perspective filled with green. Read all about it <a href="http://www.parks.wa.gov/474/Beacon-Rock" target="_blank">here</a>.
+http://instagram.com/p/o2A0mGllIm/
 
 ***City Creek Canyon in Salt Lake City***
 Right near downtown, there is a creek that descends until you forget you are in the middle of a city. Great for runs and bike rides, City Creek offers a nice respite from the hustle and bustle of a city. Read about it <a href="http://slctrackclub.org/?p=242" target="_blank">here</a>.
