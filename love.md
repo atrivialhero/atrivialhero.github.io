@@ -265,6 +265,8 @@ Food
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various, delicious foods I ate throughout my travels that I would recommend to anyone that enjoys eating... so basically everyone.
 
+***Ray's Hellburger***
+
 ***Rude Boy Cookies***
 
 ***POPS***
@@ -276,7 +278,7 @@ Food
 ***Pie Face***
 
 ***Lobster Rolls and Whoopie Pies***
-So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. <a href="I got mine from http://www.wickedwhoopies.com" target="_blank">here</a>.
+So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. I got mine from <a href="I got mine from http://www.wickedwhoopies.com" target="_blank">here</a>.
 
 ***BRGR***
 If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
