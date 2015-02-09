@@ -256,8 +256,10 @@ West Virginia is full of green, and for a desert boy, it is astounding to the se
 &nbsp;
 
 ***The Musician's Hall of Fame***
+<a href="http://www.musicianshalloffame.com" target="_blank">here</a>.
 
-***Grafitti Park***
+***Graffiti Park at Castle Hills***
+<a href="http://www.austinpost.org/article/story-behind-austins-legal-graffiti-gallery" target="_blank">here</a>.
 
 <blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:30; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:22px; margin:0 auto -22px; position:relative; top:-11px; width:22px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/tanDdIllMx/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by A.J. (@aj_atrivialhero)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-09-26T16:41:16+00:00">Sep 26, 2014 at 9:41am PDT</time></p></div></blockquote>
 <script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
@@ -265,33 +267,18 @@ West Virginia is full of green, and for a desert boy, it is astounding to the se
 &nbsp;
 
 ***Petroglyph National Monument***
+<a href="http://www.nps.gov/petr/index.htm" target="_blank">here</a>.
 
 ***Driving through Arizona***
+<a href="http://www.visitarizona.com/things-to-do/driving-tours-scenic-roads" target="_blank">here</a>.
 
 ***Red Rock Canyon***
+<a href="http://www.redrockcanyonlv.org" target="_blank">here</a>.
 
 <a name="Food"></a>
 Food
 ---
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various, delicious foods I ate throughout my travels that I would recommend to anyone that enjoys eating... so basically everyone.
-
-***Ray's Hellburger***
-
-***Rude Boy Cookies***
-
-***POPS***
-
-***Crab Cakes at Lexington Market***
-
-***Lou's Restaurant***
-
-***Pie Face***
-
-***Lobster Rolls and Whoopie Pies***
-So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. I got mine from <a href="I got mine from http://www.wickedwhoopies.com" target="_blank">here</a>.
-
-***BRGR***
-If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
 
 ***Li'l Woody's***
 Honestly, the BEST burger I have ever had in my life was from this restaurant and it was called the Fig and Pig. You can also try their signature dipping sauce called "Crack" which is a tiny milkshake to dip your fries in. Check out <a href="http://lilwoodys.com" target="_blank">Li'l Woody's</a>.
@@ -301,3 +288,28 @@ Awesome food from an unexpected source in downtown Los Angeles. If you like brea
 
 ***Piroshky***
 These delightful Russian pastries can be found all over Seattle, Washington. I honestly do not know why they aren't served all voer America because they are delicious. The most popular bakery for them can be found <a href="http://www.piroshkybakery.com" target="_blank">here</a>.
+
+***Crab Cakes at Lexington Market***
+I'm not sure how well Maryland does football, but the crab cakes are absolutely on point. They are humongous and full of crab instead of being a ball of breading sprinkled with crab pieces. Complete with the Old Bay taste synonymous with Maryland food. Read about these award winning creations <a href="http://www.faidleyscrabcakes.com" target="_blank">here</a>.
+
+***Pie Face***
+<a href="http://piefacenyc.com" target="_blank">here</a>.
+
+***Lou's Restaurant***
+<a href="http://lousrestaurant.net" target="_blank">here</a>.
+
+***Ray's Hellburger***
+<a href="http://rayshellburger.com" target="_blank">here</a>.
+
+***Rude Boy Cookies***
+<a href="https://rudeboycookies.com" target="_blank">here</a>.
+
+***POPS***
+<a href="http://www.route66.com" target="_blank">here</a>.
+
+***Lobster Rolls and Whoopie Pies***
+So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. I got mine from <a href="http://www.wickedwhoopies.com" target="_blank">here</a>.
+
+***BRGR***
+If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
+
