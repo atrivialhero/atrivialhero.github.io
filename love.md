@@ -256,10 +256,10 @@ West Virginia is full of green, and for a desert boy, it is astounding to the se
 &nbsp;
 
 ***The Musician's Hall of Fame***
-<a href="http://www.musicianshalloffame.com" target="_blank">here</a>.
+As I drove through Ohio, I stopped at the Rock and Roll Hall of Fame which is cool, but loses a sense of intimacy. The Musician's Hall of Fame in Nashville, Tennessee focuses on the musicians that are behind the scenes recording many of these great albums that we know today. Instead of focusing on the famous names we see in the headlines, the Musicians Hall of Fame celebrates the unsung heroes of music. Learn about their programs <a href="http://www.musicianshalloffame.com" target="_blank">here</a>.
 
 ***Graffiti Park at Castle Hills***
-<a href="http://www.austinpost.org/article/story-behind-austins-legal-graffiti-gallery" target="_blank">here</a>.
+This section of Austin, Texas legalizes graffiti for street artists to express themselves. It is free to visit and explore and take pictures. Check out this cool site <a href="http://www.austinpost.org/article/story-behind-austins-legal-graffiti-gallery" target="_blank">here</a>.
 
 <blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:30; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:22px; margin:0 auto -22px; position:relative; top:-11px; width:22px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/tanDdIllMx/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by A.J. (@aj_atrivialhero)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-09-26T16:41:16+00:00">Sep 26, 2014 at 9:41am PDT</time></p></div></blockquote>
 <script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
@@ -267,13 +267,13 @@ West Virginia is full of green, and for a desert boy, it is astounding to the se
 &nbsp;
 
 ***Petroglyph National Monument***
-<a href="http://www.nps.gov/petr/index.htm" target="_blank">here</a>.
+A great spot for hiking in Albuquerque, New Mexico. It is a flat, desert landscape packed with petroglyphs. On a clear day, you can lose yourself on an easy walk while reading prehistoric messages on the rocks. Look at their <a href="http://www.nps.gov/petr/index.htm" target="_blank">website</a> for more information.
 
 ***Driving through Arizona***
-<a href="http://www.visitarizona.com/things-to-do/driving-tours-scenic-roads" target="_blank">here</a>.
+I honestly think that Arizona may very well be the most beautiful state in the union. It has two of the world's seven natural wonders. As you drive through it, the landscape flows from forest to desert to amazing rock formations. I recommend using the smaller freeways instead of the main highway everytime. It will add time to your drive, but it will also add beauty. Read more <a href="http://www.visitarizona.com/things-to-do/driving-tours-scenic-roads" target="_blank">here</a>.
 
 ***Red Rock Canyon***
-<a href="http://www.redrockcanyonlv.org" target="_blank">here</a>.
+In my hometown of Las Vegas, Nevada, there are hidden treasures of which people are unaware. Vegas has so much more than the strip and casinos. On the west side of town there are some of the most beautiful rocks for hiking and climbing that you will find anywhere in the world. This conservation area is a must see when visitng Vegas if you can stay sober long enough for a hike. Learn all about their trails <a href="http://www.redrockcanyonlv.org" target="_blank">here</a>.
 
 <a name="Food"></a>
 Food
@@ -299,10 +299,10 @@ I'm not sure how well Maryland does football, but the crab cakes are absolutely 
 It blows my mind that this Australian staple hasn't made its way across the pond in a stronger way. These pies are filled with various meats and cheeses and flavors and goodness. The only place I know of that has a strong presence of these "Aussie Pies" is in New York City. This chain started in Australia and has moved into NYC. If you are in the New York area, get youself some <a href="http://piefacenyc.com" target="_blank">Pie Face</a>.
 
 ***Lou's Restaurant***
-This cafe/diner just off the Dartmouth campus is famous for its crueller French toast. <a href="http://lousrestaurant.net" target="_blank">here</a>.
+This cafe/diner just off the Dartmouth campus is famous for its crueller French toast. See the rest of their menu <a href="http://lousrestaurant.net" target="_blank">here</a>.
 
 ***Ray's Hellburger***
-<a href="http://rayshellburger.com" target="_blank">here</a>.
+This burger joint around DC offers an awesome selection of burgers, sandwiches, barbecue, and milkshakes. Let your mouth water as you check them out <a href="http://rayshellburger.com" target="_blank">here</a>.
 
 ***Rude Boy Cookies***
 In Albuquerque, New Mexico, right by the University campus, there are lots of bars and restaurants creating a fun, youthful environment. Rude Boy Cookies is among this strip of food and offers a unique dessert to follow any meal. They have a plethora of gourmet cookies and a "milk bar" where you create different flavors of milk by mix in anything from caramel to banana to mint. See all their wonder <a href="https://rudeboycookies.com" target="_blank">here</a>.
