@@ -283,6 +283,9 @@ Food
 ***Li'l Woody's***
 Honestly, the BEST burger I have ever had in my life was from this restaurant and it was called the Fig and Pig. You can also try their signature dipping sauce called "Crack" which is a tiny milkshake to dip your fries in. Check out <a href="http://lilwoodys.com" target="_blank">Li'l Woody's</a>.
 
+***BRGR***
+If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
+
 ***Eggslut***
 Awesome food from an unexpected source in downtown Los Angeles. If you like breakfast (and any person that doesn't is missing out) Eggslut serves some tasty sandwiches. <a href="http://www.eggslut.com/#about" target="_blank">Website</a> here.
 
@@ -293,23 +296,19 @@ These delightful Russian pastries can be found all over Seattle, Washington. I h
 I'm not sure how well Maryland does football, but the crab cakes are absolutely on point. They are humongous and full of crab instead of being a ball of breading sprinkled with crab pieces. Complete with the Old Bay taste synonymous with Maryland food. Read about these award winning creations <a href="http://www.faidleyscrabcakes.com" target="_blank">here</a>.
 
 ***Pie Face***
-<a href="http://piefacenyc.com" target="_blank">here</a>.
+It blows my mind that this Australian staple hasn't made its way across the pond in a stronger way. These pies are filled with various meats and cheeses and flavors and goodness. The only place I know of that has a strong presence of these "Aussie Pies" is in New York City. This chain started in Australia and has moved into NYC. If you are in the New York area, get youself some <a href="http://piefacenyc.com" target="_blank">Pie Face</a>.
 
 ***Lou's Restaurant***
-<a href="http://lousrestaurant.net" target="_blank">here</a>.
+This cafe/diner just off the Dartmouth campus is famous for its crueller French toast. <a href="http://lousrestaurant.net" target="_blank">here</a>.
 
 ***Ray's Hellburger***
 <a href="http://rayshellburger.com" target="_blank">here</a>.
 
 ***Rude Boy Cookies***
-<a href="https://rudeboycookies.com" target="_blank">here</a>.
+In Albuquerque, New Mexico, right by the University campus, there are lots of bars and restaurants creating a fun, youthful environment. Rude Boy Cookies is among this strip of food and offers a unique dessert to follow any meal. They have a plethora of gourmet cookies and a "milk bar" where you create different flavors of milk by mix in anything from caramel to banana to mint. See all their wonder <a href="https://rudeboycookies.com" target="_blank">here</a>.
 
 ***POPS***
-<a href="http://www.route66.com" target="_blank">here</a>.
+This is a classic stop on the famous Route 66 in Oklahoma between Tulsa and Oklahoma City. It has different sodas from all over the world and a classic diner menu. If you find yourself in the area, at least stop to get a picture by the iconic soda bottle by the road. They have their own <a href="http://www.route66.com" target="_blank">website</a>.
 
 ***Lobster Rolls and Whoopie Pies***
 So if you are going to Maine, you have to eat Lobster. It is pretty much a rule. Their lobster is delicious, and you can go to a wide variety of places to get your fix. But a lesser known food tip is the Whoopie Pie. These large desserts are served throughout the state. They are like two huge pieces of cake with a creamy icing sandwiched in the middle. It's enough calories to last you a few days, but it is delicious. I got mine from <a href="http://www.wickedwhoopies.com" target="_blank">here</a>.
-
-***BRGR***
-If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
-
