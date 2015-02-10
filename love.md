@@ -35,7 +35,7 @@ Amazing freelance animator and writer. One of the hardest workers I came across 
 These crafty sisters from Las Vegas, Nevada create fun, original accessories for people and pets! For people looking for unique style or gifts, they "promise you like!" Check out <a href="https://www.etsy.com/shop/ilikeilikedesigns" target="_blank">iLike iLike Designs</a>!
 
 ***Carey McComas***
-This wonderful spirit is housed in the body of one of the cutest people you could possibly encounter. Her fun, folksy ukulele songs incite smiles everytime. Her poems inspire. Most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble" target="_blank">Twitter</a>.
+This wonderful spirit is housed in the body of one of the cutest people you could possibly encounter. Her fun, folksy ukulele songs incite smiles every time. Her poems inspire. Most importantly, her happy energy is contagious. Check her out on <a href="https://twitter.com/c_scribble" target="_blank">Twitter</a>.
 
 ***Phil Jacobson***
 This Chicago-based musician has a smooth voice and a genuine sound that allows him to connect with all audiences. Information is available on <a href="http://www.reverbnation.com/philjacobson" target="_blank">Reverb Nation</a>.
@@ -48,7 +48,7 @@ This three-piece band from Seattle, Washington provides a robust and soulful sou
 <iframe width="315" height="177" src="https://www.youtube.com/embed/4MxPo5CpnX4" frameborder="0" allowfullscreen></iframe>
 
 ***Matthew Shone***
-This stand-up comedian from Las Vegas, Nevada uses a self-aware brand of comedy that is uundeniably endearing. Follow him on <a href="https://twitter.com/MatthewShone" target="_blank">Twitter</a>.
+This stand-up comedian from Las Vegas, Nevada uses a self-aware brand of comedy that is undeniably endearing. Follow him on <a href="https://twitter.com/MatthewShone" target="_blank">Twitter</a>.
 
 ***Joey Hines***
 Las Vegas-based singer/songwriter creates a blend of folk songs that range from silly to raw and brutally honest. Listen to him on <a href="http://joeyhines.bandcamp.com" target="_blank">Bandcamp</a>
@@ -80,7 +80,7 @@ This comedian and cartoonist hails from Boston, Massachusetts. He displays his w
 A singer/songwriter in the Boston area that blends acoustic songs with 8-bit sounds. Fun, funny, and talented. Check out his <a href="http://www.sammulligan.com" target="_blank">Music</a>.
 
 ***John Burke***
-Here is a powerful poet whose love flows through him as he recites his rhymes.
+Here is a powerful poet from Jersey whose love flows through him as he recites his rhymes. Check out his sounds on <a href="https://www.youtube.com/channel/UCSD-4Pv9Jn_3nI-ocVsEi1g" target="_blank">Youtube</a>.
 
 ***Jahiti***
 From Baltimore, Maryland, this singer/songwriter uses his powerful voice and energy to move a message of love and happiness wherever he can find ears to listen. He has <a href="http://www.jahitiworld.com" target="_blank">Music</a> online.
@@ -101,13 +101,20 @@ This was one of my favorite venues in the entire country. Located in North Holly
 <iframe width="315" height="177" src="https://www.youtube.com/embed/9keu8DI_-F0" frameborder="0" allowfullscreen></iframe>
 
 ***Kupros***
-Kupros is a fun bar in downtown Sacramento that looks like a Frat house from the outside, but it is much cooler inside and I didn't have any fear of being hazed or roofied. The host of their open mic was one of the kindest people I encountered. Here is their <a href="http://www.kuproscrafthouse.com" target="_blank">Website</a>.
+Kupros is a fun bar in downtown Sacramento that looks like a Frat house from the outside, but it is much cooler inside... and I didn't have any fear of being hazed or roofied. The host of their open mic was one of the kindest people I encountered. Here is their <a href="http://www.kuproscrafthouse.com" target="_blank">Website</a>.
 
 ***Kelly's Olympian***
-Cool bar right in the middle of downtown Portland. It has a separate room with a big stage and great sound system. Learn more at their <a href="http://kellysolympian.com" target="_blank">Website</a>.
+Cool bar right in the middle of downtown Portland. It has a separate room with a big stage and great sound system. Learn more on their <a href="http://kellysolympian.com" target="_blank">Website</a>.
 
 ***Darrell's Tavern***
 Small bar on the northern end of Seattle. They do a great open mic with lots of energy and talent. Check them out on their <a href="http://darrellstavern.com" target="_blank">Website</a>.
+
+***Lizard Lounge***
+Cool bar in Boston right in Harvard square. They house an open mic in their basement that floods with talent and ingenuity from songwriters. Learn more on their <a href="http://www.thelizardlounge.com" target="_blank">Website</a>.
+
+***The Beat***
+This is a very cool venue in Downtown Las Vegas. They host the Human Experience which is one of the most consistently, well attended open mics I have seen anywhere in the U.S. They host the occasional concert as well. Definitely see when you can catch some fun on their <a href="http://www.thebeatlv.com" target="_blank">Website</a>.
+<iframe width="315" height="177" src="https://www.youtube.com/embed/WqZPmNlwKXQ" frameborder="0" allowfullscreen></iframe>
 
 ***Greenhouse Effect***
 This houses a great community of writers from poets to songwriters to comedians. An intimate cafe feel in Salt Lake City. Learn all about their open mic on <a href="https://www.facebook.com/groups/GreenhouseEffectOpen/" target="_blank">Facebook</a>.
@@ -119,26 +126,26 @@ The area of Denver this bar is located in seems sketchy, but it is a diamond in 
 This venue can be found in Omaha's Benson district. It appears to be a small cafe, but it contains a large stage and great sound system that allows for a nice blend of intimacy between performers and audiences while still having a big stage feel. Read about the great things they are doing on their <a href="http://402artscollective.org" target="_blank">Website</a>.
 <iframe width="315" height="177" src="https://www.youtube.com/embed/scKZH19TWZo" frameborder="0" allowfullscreen></iframe>
 
+***Firehouse Hostel***
+This hostel in Austin, Texas hides a bar/lounge that appears to be straight out of the 20's. You slide back a bookshelf to find a great, intimate venue with some of the best sound I encountered across the country. Definitely in my top three. Learn all about it on their <a href="http://www.firehousehostel.com" target="_blank">Website</a>.
+
 ***Lilly's Chicago***
 This is a very small bar in Chicago, but it hosts a great open mic and is conveniently located. Keep up to date with them on <a href="https://www.facebook.com/LillysChicago" target="_blank">Facebook</a>.
 
 ***Club Cafe***
 This venue in Pittsburgh provides a great stage with clear sound. It's got a bit of a lounge atmosphere to it, but is well worth checking out their <a href="http://clubcafelive.com" target="_blank">Website</a> at least.
 
-***Lizard Lounge***
-Cool bar in Boston right in Harvard square. They house an open mic in their basement that floods with talent and ingenuity from songwriters. Learn more on their <a href="http://www.thelizardlounge.com" target="_blank">Website</a>.
-
 ***Club Passim***
 Another great venue in Harvard square. This small restaurant provides a big stage and friendly audience. Their <a href="http://www.clubpassim.org" target="_blank">Website</a> can tell you more.
 
 ***Bwe Kafe***
-Small, intimate cafe space in Hoboken, NJ. They hold Hoboken spoken and provide a great outlet for many talented artists to share. Check it out on their <a href="http://www.bwekafe.com" target="_blank">Website</a>.
+Small, intimate cafe space in Hoboken, New Jersey. They hold Hoboken spoken and provide a great outlet for many talented artists to share. Check it out on their <a href="http://www.bwekafe.com" target="_blank">Website</a>.
 
 ***Open Mic Downstairs***
-This was one of the coolest opn mics in the whole country. In New York City, tons of talented people fill this space, though this one leans more heavily on the comedic side than many other open mics. Feel comfortable in this great workshopping space. And of course, here is the <a href="http://openmicdownstairs.com" target="_blank">Website</a>.
+This was one of the coolest open mics in the whole country. In New York City, tons of talented people fill this space, though this one leans more heavily on the comedic side than many other open mics. Feel comfortable in this great workshopping space. And of course, here is the <a href="http://openmicdownstairs.com" target="_blank">Website</a>.
 
 ***The Bitter End***
-Another great venue in New York City, the Bitter End is right near the NYU campus and provides a great stage, with clear sound, and access to a good audience. Check them out on their <a href="http://www.bitterend.com" target="_blank">Website</a>.
+Another great venue in New York City, the Bitter End is right near the NYU campus and provides a great stage with clear sound and access to a good audience. Check them out on their <a href="http://www.bitterend.com" target="_blank">Website</a>.
 
 ***Sidewalk Cafe***
 Cool cafe space in New York City with a great stage and good listening room. Read all about it on their <a href="http://www.sidewalkny.com" target="_blank">Website</a>.
@@ -152,9 +159,6 @@ This is a very cool show in Plano, Texas (a suburb of Dallas on the northern end
 ***Opening Bell Coffeehouse***
 This is a very cool venue in Dallas, Texas. It's got a good, low stage with an intimate cafe feel. Seems to be a popular spot as well, so see when you'd need to arrive by checking out their <a href="hhttp://www.openingbellcoffee.com" target="_blank">Website</a>.
 
-***Firehouse Hostel***
-This hostel in Austin, Texas hides a bar/lounge that appears to be straight out of the 20's. You slide back a bookshelf to find a great, intimate venue with some of the best sound I encountered across the country. Definitely in my top three. Learn all about it on their <a href="http://www.firehousehostel.com" target="_blank">Website</a>.
-
 ***Speakeasy***
 This downtown Austin bar is several stories high with a whole lot to offer. From a big stage to a bowling alley to a rooftop bar, this bar is just plain fun. Learn more from their <a href="http://www.speakeasyaustin.com" target="_blank">Website</a>.
 
@@ -167,10 +171,6 @@ This is a large venue with multiple stages and theaters to put on a variety of d
 ***CASA Sunba***
 This is a very small space, but it is an absolute blast to play. Again, right near the ASU campus in Tempe, this bar just brings the fun for performances. See what's on their schedule on their <a href="hhttp://www.casa-sunba.com" target="_blank">Website</a>.
 
-***The Beat***
-This is a very cool venue in Downtown Las Vegas. They host the Human Experience which is one of the most consistently, well attended open mics I have seen anywhere in the U.S. They host the occasional concert as well. Definitely see when you can catch some fun on their <a href="http://www.thebeatlv.com" target="_blank">Website</a>.
-<iframe width="315" height="177" src="https://www.youtube.com/embed/WqZPmNlwKXQ" frameborder="0" allowfullscreen></iframe>
-
 ***The Crepe***
 This cafe space is located on the west side of Las Vegas. The owners support local acts and hope to nurture talent to grow. Check out their <a href="http://thecrepelasvegas.com" target="_blank">Website</a>.
 
@@ -178,13 +178,13 @@ This cafe space is located on the west side of Las Vegas. The owners support loc
 <a name="Projects"></a>
 Projects
 ---
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various initiatives worth checking out from people supporting local scenes to promoting mental health in cool collective ways.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are various initiatives worth checking out. Projects range from people supporting local scenes to promoting mental health in cool collective ways.
 
 ***Punks in Vegas***
-These guys do such a great job supporting the music scene out in Vegas, and not just for punk rock. They do some awesome things interacting both with local acts as well as large, out of state acts. They can be found at pretty much every big show taking pictures, but then you can check out local, unknown bands on their youtube. Definitely check out all the great things Punks in Vegas are doing on their <a href="http://www.punksinvegas.com" target="_blank">Website</a>.
+These guys do such a great job supporting the music scene out in Vegas, and not just for punk rock. They do some awesome things interacting both with local acts and large, out of state acts. They can be found taking pictures at pretty much every major show in town, but then you can check out local, unknown bands on their youtube. Definitely look into all of the great things Punks in Vegas are doing on their <a href="http://www.punksinvegas.com" target="_blank">Website</a>.
 
 ***Roads to Courage***
-I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and the U.S. They hitchhiked and interviewed people about what fear and courage means from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
+I had the pleasure of meeting these two phenomenal Europeans on their journey through South America and the U.S. They hitchhiked and interviewed people about what fear and courage mean from different perspectives. What they will turn it all into will truly be a wonder to behold. You can keep up with the project on their <a href="http://www.roadstocourage.com" target="_blank">Website</a>.
 <iframe width="315" height="177" src="https://www.youtube.com/embed/D_glECed8tg" frameborder="0" allowfullscreen></iframe>
 
 ***Couchsurfing***
@@ -205,7 +205,7 @@ Destinations
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;These are random, possibly under the radar visits I made on my roadtrip that I would recommend to all travelers out there.
 
 ***The Pacific Coast Highway***
-If you are traveling through any of the states along the Pacific Ocean, it is well worth it to take a strecth fo the Pacific Coast Highway, or the PCH for short. It will add time to your travel, but it will also add beauty and wonder. This road traces the coast so you are driving right along the water, winding around cliffs and through redwood forests. Stop at Big Sur and look out at the horizon to feel the vastness of our world. <a href="http://www.pacific-coast-highway-travel.com" target="_blank">More information here</a>.
+If you are traveling through any of the states along the Pacific Ocean, it is well worth it to take a strecth of the Pacific Coast Highway, or the PCH for short. It will add time to your travel, but it will also add beauty and wonder. This road traces the coast so you are driving right along the water, winding around cliffs and through redwood forests. Stop at Big Sur and look out at the horizon to feel the vastness of our world. <a href="http://www.pacific-coast-highway-travel.com" target="_blank">More information here</a>.
 
 ***Powell's Books***
 This huge bookstore in downtown Portland is an avid reader's wet dream. An entire city block and multiple stories weave through every genre of book imaginable. Learn all about the magic <a href="http://www.powells.com" target="_blank">here</a>.
@@ -214,14 +214,14 @@ This huge bookstore in downtown Portland is an avid reader's wet dream. An entir
 This museum in Seattle is right next door to the Space Needle, and in my opinion, it is much more worth the visit than the Space Needle is. The EMP provides a hands-learning experience that thrusts visitors into the vibrant Seattle music scene. Learn what you can experience <a href="http://www.empmuseum.org" target="_blank">here</a>.
 
 ***Beacon Rock***
-There is tons of great hiking in the Pacific Northwest, but a fairly simple one that gets you amazing views is Beacon Rock. This large rock right on the Oregon-Washington border can be summitted in under half an hour if you hustle and it provides an awesome perspective filled with green. Read all about it <a href="http://www.parks.wa.gov/474/Beacon-Rock" target="_blank">here</a>.
+There is tons of great hiking in the Pacific Northwest, but a fairly simple one that provides amazing views is Beacon Rock. This large rock right on the Oregon-Washington border can be summitted in under half an hour if you hustle, and it ends with an awesome perspective full of green. Read all about it <a href="http://www.parks.wa.gov/474/Beacon-Rock" target="_blank">here</a>.
 <blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:30; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:30px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:22px; margin:0 auto -22px; position:relative; top:-11px; width:22px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/o2A0mGllIm/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by A.J. (@aj_atrivialhero)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-06-05T01:28:57+00:00">Jun 4, 2014 at 6:28pm PDT</time></p></div></blockquote>
 <script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
 
 &nbsp;
 
 ***City Creek Canyon in Salt Lake City***
-Right near downtown, there is a creek that descends until you forget you are in the middle of a city. Great for runs and bike rides, City Creek offers a nice respite from the hustle and bustle of a city. Read about it <a href="http://slctrackclub.org/?p=242" target="_blank">here</a>.
+Right near downtown, there is a creek that descends until you forget you are in the middle of a city. Great for runs and bike rides, City Creek offers a nice respite from the hustle and bustle of a downtown area. Read about it <a href="http://slctrackclub.org/?p=242" target="_blank">here</a>.
 
 ***Denver Museum of Nature and Science***
 A huge museum in a great city, this place is just plain fun. Educational on all aspects of science complete with a planetarium. Loved this museum. Learn more <a href="http://www.dmns.org" target="_blank">here</a>.
@@ -230,26 +230,26 @@ A huge museum in a great city, this place is just plain fun. Educational on all 
 This comedy show with a residency in Chicago is the funniest thing I have ever had the pleasure of seeing. With a list of alumnis like Tina Fey, Chris Farly, Mike Myers, and many more, this show clearly holds a high standard and is guaranteed to make you laugh every time.Learn how you can book an evening of laughs <a href="http://www.secondcity.com" target="_blank">here</a>.
 
 ***Ben and Jerry's Tour Factory***
-I was in the middle of Vermont without a clue what to do when a friend suggested I tour the Ben and Jerry's factory. I had no idea it was in Vermont. I drove there immediately and bought a ticket for the next tour. $4.00 got me a half hour tour of the factory that taught me all about the company and its history (it's a really cool company too!) and then the tour ends in their "Laboratory" where they create ice cream flavors. You get a sample of an experimental flavor of ice cream that changes daily. How can anyone say "no" to that? Check it out <a href="http://www.benjerry.com/about-us/factory-tours" target="_blank">here</a>.
+I was in the middle of Vermont without a clue of what to do when a friend suggested I tour the Ben and Jerry's factory. I had no idea it was in Vermont. I drove there immediately and bought a ticket for the next tour. $4.00 got me a half hour tour of the factory that taught me all about the company and its history (it's a really cool company too!) and then the tour ended in their "Laboratory" where they create ice cream flavors. You get a sample of an experimental flavor of ice cream that changes daily. How can anyone say "no" to that? Check it out <a href="http://www.benjerry.com/about-us/factory-tours" target="_blank">here</a>.
 
 ***The Dartmouth Campus***
 As one might imagine, this campus is simply stunning. The library is full of artwork and wonderful things including a Dr. Seuss study room. Who knew that Dr. Seuss was a Dartmouth graduate? Learn about the fantastic school <a href="http://dartmouth.edu" target="_blank">here</a>.
 
 ***Strand Bookstore***
-Similar to Powell's, this New York City bookstore offers tons of books at bargain prices. Additionally, they have a resident dog that is all over their Instagram. Learn more <a href="http://www.strandbooks.com" target="_blank">here</a>.
+Similar to Powell's in Portland, this New York City bookstore offers tons of books at bargain prices. Additionally, they have a resident dog that is all over their Instagram. Learn more <a href="http://www.strandbooks.com" target="_blank">here</a>.
 
 ***The Jersey Shore***
-Contrary to what reality television portrays, the Jersey Shore is actually pretty cool to visit. You are charged to step onto the sand, but it is worth it because they keep it looking pristine. The boardwalk is full of delicious snacks and little shops. You can get delicious New York pizza there. They have more information <a href="http://www.visitnj.org/nj/beaches" target="_blank">here</a>.
+Contrary to what reality television portrays, the Jersey Shore is actually pretty cool to visit. You are charged to step onto the sand, but it is worth the price of admission because they keep it looking pristine. The boardwalk is full of delicious snacks and little shops. You can get delicious New York pizza there. They have more information <a href="http://www.visitnj.org/nj/beaches" target="_blank">here</a>.
 <blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:30; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:22px; margin:0 auto -22px; position:relative; top:-11px; width:22px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/r2AoCAFlCQ/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by A.J. (@aj_atrivialhero)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-08-18T15:01:25+00:00">Aug 18, 2014 at 8:01am PDT</time></p></div></blockquote>
 <script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
 
 &nbsp;
 
 ***Edgar Allan Poe's Grave***
-This great American author died in Baltimore, Maryland and they have a wonderful tribute to him and his family located there. You can read about it <a href="http://baltimore.org/article/edgar-allan-poe-baltimore" target="_blank">here</a>.
+This great American author died in Baltimore, Maryland. They have a wonderful tribute to him and his family located there. You can read about it <a href="http://baltimore.org/article/edgar-allan-poe-baltimore" target="_blank">here</a>.
 
 ***Cooper's Rock State Forest***
-West Virginia is full of green, and for a desert boy, it is astounding to the senses. It is full of awesome hikes and great views. See what their take on it all is <a href="http://www.coopersrockstateforest.com" target="_blank">here</a>.
+West Virginia is full of green, and for a desert boy, it is astounding to the senses. This state forest is full of awesome hikes and great views. See what their take on it all is <a href="http://www.coopersrockstateforest.com" target="_blank">here</a>.
 <blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:30; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:22px; margin:0 auto -22px; position:relative; top:-11px; width:22px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/spc8bbllEi/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by A.J. (@aj_atrivialhero)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2014-09-07T14:30:09+00:00">Sep 7, 2014 at 7:30am PDT</time></p></div></blockquote>
 <script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
 
@@ -270,10 +270,10 @@ This section of Austin, Texas legalizes graffiti for street artists to express t
 A great spot for hiking in Albuquerque, New Mexico. It is a flat, desert landscape packed with petroglyphs. On a clear day, you can lose yourself on an easy walk while reading prehistoric messages on the rocks. Look at their <a href="http://www.nps.gov/petr/index.htm" target="_blank">website</a> for more information.
 
 ***Driving through Arizona***
-I honestly think that Arizona may very well be the most beautiful state in the union. It has two of the world's seven natural wonders. As you drive through it, the landscape flows from forest to desert to amazing rock formations. I recommend using the smaller freeways instead of the main highway everytime. It will add time to your drive, but it will also add beauty. Read more <a href="http://www.visitarizona.com/things-to-do/driving-tours-scenic-roads" target="_blank">here</a>.
+I honestly think that Arizona may very well be the most beautiful state in the union. It has two of the world's seven natural wonders. As you drive through it, the landscape flows from forest to desert to amazing rock formations. I recommend using the smaller freeways instead of the main highway every time. It will add time to your drive, but it will also add experience. Read more <a href="http://www.visitarizona.com/things-to-do/driving-tours-scenic-roads" target="_blank">here</a>.
 
 ***Red Rock Canyon***
-In my hometown of Las Vegas, Nevada, there are hidden treasures of which people are unaware. Vegas has so much more than the strip and casinos. On the west side of town there are some of the most beautiful rocks for hiking and climbing that you will find anywhere in the world. This conservation area is a must see when visitng Vegas if you can stay sober long enough for a hike. Learn all about their trails <a href="http://www.redrockcanyonlv.org" target="_blank">here</a>.
+In my hometown of Las Vegas, Nevada, there are hidden treasures of which people are unaware. Vegas has so much more than the strip and casinos. On the west side of town, there are some of the most beautiful rocks for hiking and climbing that you will find anywhere in the world. This conservation area is a must see when visitng Vegas if you can stay sober long enough for a hike. Learn all about their trails <a href="http://www.redrockcanyonlv.org" target="_blank">here</a>.
 
 <a name="Food"></a>
 Food
@@ -284,16 +284,16 @@ Food
 Honestly, the BEST burger I have ever had in my life was from this restaurant and it was called the Fig and Pig. You can also try their signature dipping sauce called "Crack" which is a tiny milkshake to dip your fries in. Check out <a href="http://lilwoodys.com" target="_blank">Li'l Woody's</a>.
 
 ***BRGR***
-If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they got <a href="http://brgrpgh.com" target="_blank">here</a>.
+If the Fig and Pig from Li'l Woody's is the best burger I've ever had, this is the second best. In Pittsburgh, Pennsylvania, the BRGR Bar serves great gourmet burgers. The Button Buster or the King Salmon are excellent choices. See what else they've got <a href="http://brgrpgh.com" target="_blank">here</a>.
 
 ***Eggslut***
-Awesome food from an unexpected source in downtown Los Angeles. If you like breakfast (and any person that doesn't is missing out) Eggslut serves some tasty sandwiches. <a href="http://www.eggslut.com/#about" target="_blank">Website</a> here.
+Awesome food from an unexpected source in downtown Los Angeles. If you like breakfast (and any person that doesn't is missing out) Eggslut serves some tasty sandwiches. Read about it <a href="http://www.eggslut.com/#about" target="_blank">Website</a> here.
 
 ***Piroshky***
-These delightful Russian pastries can be found all over Seattle, Washington. I honestly do not know why they aren't served all voer America because they are delicious. The most popular bakery for them can be found <a href="http://www.piroshkybakery.com" target="_blank">here</a>.
+These delightful Russian pastries can be found all over Seattle, Washington. I honestly do not know why they aren't served all over America because they are delicious. The most popular bakery for them can be found <a href="http://www.piroshkybakery.com" target="_blank">here</a>.
 
 ***Crab Cakes at Lexington Market***
-I'm not sure how well Maryland does football, but the crab cakes are absolutely on point. They are humongous and full of crab instead of being a ball of breading sprinkled with crab pieces. Complete with the Old Bay taste synonymous with Maryland food. Read about these award winning creations <a href="http://www.faidleyscrabcakes.com" target="_blank">here</a>.
+I'm not sure how well Maryland does football, but the crab cakes are absolutely on point. They are humongous and full of crab instead of being a ball of breading sprinkled with crab pieces. Complete with the Old Bay taste synonymous with Maryland food, read about these award winning creations <a href="http://www.faidleyscrabcakes.com" target="_blank">here</a>.
 
 ***Pie Face***
 It blows my mind that this Australian staple hasn't made its way across the pond in a stronger way. These pies are filled with various meats and cheeses and flavors and goodness. The only place I know of that has a strong presence of these "Aussie Pies" is in New York City. This chain started in Australia and has moved into NYC. If you are in the New York area, get youself some <a href="http://piefacenyc.com" target="_blank">Pie Face</a>.
