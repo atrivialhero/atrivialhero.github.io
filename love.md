@@ -157,7 +157,7 @@ This is a small cafe space in downtown Baltimore, but wow were the people runnin
 This is a very cool show in Plano, Texas (a suburb of Dallas on the northern end). The acts at this show vary across a wide spectrum providing fun entertainment on a regular basis. See how you can get involved on their <a href="http://circusfreaks.org" target="_blank">Website</a>.
 
 ***Opening Bell Coffeehouse***
-This is a very cool venue in Dallas, Texas. It's got a good, low stage with an intimate cafe feel. Seems to be a popular spot as well, so see when you'd need to arrive by checking out their <a href="hhttp://www.openingbellcoffee.com" target="_blank">Website</a>.
+This is a very cool venue in Dallas, Texas. It's got a good, low stage with an intimate cafe feel. Seems to be a popular spot as well, so see when you'd need to arrive by checking out their <a href="http://www.openingbellcoffee.com" target="_blank">Website</a>.
 
 ***Speakeasy***
 This downtown Austin bar is several stories high with a whole lot to offer. From a big stage to a bowling alley to a rooftop bar, this bar is just plain fun. Learn more from their <a href="http://www.speakeasyaustin.com" target="_blank">Website</a>.
@@ -169,7 +169,7 @@ Right across from the campus of the University of Albuquerque, Brickyard Pizza p
 This is a large venue with multiple stages and theaters to put on a variety of different shows. It is very close to the ASU campus in Tempe, Arizona. Check out their programs on their <a href="http://www.tempe.gov/city-hall/community-services/tempe-center-for-the-arts" target="_blank">Website</a>.
 
 ***CASA Sunba***
-This is a very small space, but it is an absolute blast to play. Again, right near the ASU campus in Tempe, this bar just brings the fun for performances. See what's on their schedule on their <a href="hhttp://www.casa-sunba.com" target="_blank">Website</a>.
+This is a very small space, but it is an absolute blast to play. Again, right near the ASU campus in Tempe, this bar just brings the fun for performances. See what's on their schedule on their <a href="http://www.casa-sunba.com" target="_blank">Website</a>.
 
 ***The Crepe***
 This cafe space is located on the west side of Las Vegas. The owners support local acts and hope to nurture talent to grow. Check out their <a href="http://thecrepelasvegas.com" target="_blank">Website</a>.
