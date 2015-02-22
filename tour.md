@@ -45,8 +45,8 @@ Open Mic Reviews
 ***Dallas and Austin, Texas***
 <iframe width="315" height="177" src="https://www.youtube.com/embed/Gt2-cnl9p0o" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="https://www.youtube.com/embed/7BcghCdqVeQ" frameborder="10" allowfullscreen></iframe>
 ---
-***Albuquerque and Phoenix***
-<iframe width="315" height="177" src="https://www.youtube.com/embed/bYxH_2FwfkI" frameborder="10" allowfullscreen></iframe>
+***Albuquerque, Phoenix, and Las Vegas***
+<iframe width="315" height="177" src="https://www.youtube.com/embed/bYxH_2FwfkI" frameborder="10" allowfullscreen></iframe><iframe width="315" height="177" src="https://www.youtube.com/embed/NZinABizpR0" frameborder="10" allowfullscreen></iframe>
 
 
 ---
